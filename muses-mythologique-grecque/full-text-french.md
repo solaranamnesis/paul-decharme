@@ -36,7 +36,7 @@ L'histoire des _Religions de l'antiquité_ de Creuzer, traduite par M. Guigniaut
 
 Si, après toutes ces savantes études, il nous a été donné de trouver encore quelques détails nouveaux, c'est au sol de la Grèce et à ses ruines que nous le devons. Le séjour de Rome ne nous a pas été moins utile ; nous avons pu réunir toutes les informations nécessaires à ce travail, grâce à la bibliothèque de l'Institut archéologique, qui a été mise à notre disposition avec la plus complète et la plus aimable libéralité.
 
-# Chapitre Premier. Les Muses dans Homère et la Théogonie.
+# Chapitre Premier. --- Les Muses dans Homère et la Théogonie.
 
 Il ne faut pas demander à l'étymologie le sens primitif des Muses. Le nom de ces divinités a été l'objet d'explications nombreuses et très-différentes* ; mais aucune n'a un tel caractère de certitude qu'on puisse l'adopter en toute sécurité et en tirer de rigoureuses conclusions. Nous devrons donc commencer par faire l'histoire de la religion des Muses, depuis les plus anciens monuments authentiques de la poésie grecque où il en est fait mention, jusqu'à l'époque où leur culte est fixé. Nous rechercherons ensuite, d'après les indices de tout genre que nous fourniront la topographie, les textes, les monuments, quel a été le caractère primitif et naturaliste de cette croyance.
 
@@ -151,5 +151,55 @@ La généalogie donnée par Hésiode aux Muses, filles de Jupiter et de Mnémosy
 *) Cic. _De N. D._, 3, 21.
 
 *) Médée, v. 833.
+
+Les rhapsodes héliconiens fixèrent également le nombre et le nom des Muses.* Dans la Théogonie, elles sont au nombre de neuf, et elles portent déjà les noms qu'elles conserveront pendant toute la durée de la religion hellénique : Clio, Euterpe, Thalia, Melpomène, Terpsichore, Erato, Polymnia, Uranie et Calliope.* C'est sous ces dénominations qu'elles furent honorées dans le pays de Thespies, et ensuite dans d'autres cantons de la Grèce. D'après une tradition béotienne recueillie par Pausanias, les Muses primitives, honorées par les Aloïdes, fondateurs d'Ascra, portaient les noms de _Mélétè_, _Mnèmè_, _Aoidè_.* Ces dénominations n'ont pas, sans doute, une si lointaine origine ; elles appartiennent plutôt à une époque de réflexion et d'abstraction, car elles indiquent simplement une division de l'art des rhapsodes en invention, mémoire et chant. Si les Muses ternaires avaient disparu de la religion, leur souvenir s'était conservé dans l'art : on les trouve représentées toutes les trois sur un vase athénien d'époque ancienne,* et Mélétè se voit avec Musée et Terpsichore sur une amphore de Vulci.*
+
+*) D'après Varron (_Fragm._, éd. Bip., p. 329) c'est Hésiode qui le premier donna des noms distincts aux Muses.
+
+*) _Théog._ 76-79.
+
+*) Pausan. 9 ; 29, 2.
+
+*) Stackelberg, _Gräber d. Hellen._, pl. 19. On voit Apollon couronné de laurier, assis et jouant de la lyre ; devant lui, Mnèmè qui tient un rouleau de papier, derrière, Aoidè une lyre à la main, et Mélétè avec la double flûte.
+
+*) Cette amphore, actuellement au Musée britannique, a été reproduite dans les _Monuments inédits de l'Institut arch._ de Rome, vol. 5. pl. 37. Cf. _Annales_, 1852, article d'O. Jahn. La légende probablement altérée porte : [GREEK]. Welcker suppose que l'artiste aura voulu écrire : [GREEK] du verbe [GREEK]. Cette Muse serait donc la même que Mélétè. Sa physionomie a une expression sérieuse ; elle est vêtue du simple _chiton_ dorique ; elle tient les doubles flûtes, prête à accompagner Terpsichore.
+
+Fixée dans ses traits généraux par Homère et par Hésiode, la religion hellénique n'eut cependant jamais rien de constant ni d'immuable : elle suivit les caprices de la vive imagination qui lui avait donné naissance ; en passant d'un canton à l'autre, elle se modifia insensiblement, se pliant aux traditions locales et aux fantaisies des poètes. Il ne faut donc pas s'étonner que les Muses novénaires ne soient pas universellement reconnues dans les textes antiques qui nous sont parvenus. D'après certains auteurs, elles étaient au nombre de quatre, allusion probable au tétrachorde primitif.* Les sept Muses de Lesbos rappellent l'heptachorde* inventé par Terpandre, ou les rapports qui unissent ces divinités à Apollon Hebdomagète.* Le nombre huit, donné aux Muses par les Pythagoriciens, se rapporte, suivant Plutarque, aux huit sphères célestes.* A Sicyone, une des trois Muses portait le nom de _Polymathia_, variante de Polyhymnia.* A Delphes, elles empruntaient leurs noms à l'art de la lyre, comme l'indiquent les dénominations de _Nétè_, _Mésè_ et _Hypatè_.* La religion des Muses fut donc soumise, comme celle des autres divinités grecques, à un certain nombre de variétés locales. Mais tous les témoignages que nous possédons à ce sujet sont d'une époque très-postérieure à la Théogonie, et nous permettent de croire que les Muses distinctes de celles de Thespies n'eurent jamais une grande place ni dans la religion, ni dans l'art. Toutes ces traditions particulières, tous ces cultes locaux, s'effacent pour nous devant le souvenir et les nobles images des Muses héliconiennes chantées par les poètes, vivantes encore dans les monuments de la statuaire grecque.
+
+*) Cic. _De N. D._ 2, 21 ; Arnob. 3, 37 : « Ephorus Musas numéro esse tres affert ; Mnaseas quatuor. »
+
+*) Cornut. _De N. D._ 14, p. 47., éd. Osann.
+
+*) Apollon était surnommé [GREEK] ou [GREEK], parce que, suivant les traditions, il était né le sept du mois. On le disait aussi né dans le septième mois de l'année : de là le surnom d'[GREEK]. Aux fêtes d'Apollon, sept garçons et autant de jeunes filles conduisaient la pompe. Cf. Procul. _in Tim._ 3, 200 ; J. Lydus, _de Mens._ pag. 26.
+
+*) Plutarch. _Symp._ 9, 14, p. 746 a. On trouve même deux Muses seulement citées dans un passage du stoïcien Cornutus (_De N. D._ 14, p. 47). Mais ces deux Muses sont d'invention philosophique, et de pures allégories. Elles n'ont sans doute jamais existé dans l'ancienne poésie. Telle est aussi l'opinion de Petersen, p. 89 de sa dissertation : _De Musarum apud Græcos origine, numero nominibusque_.
+
+*) Plutarch. _Symp._ 9, 14, p. 746, e.
+
+*) _Ibid._ 9, 14. p. 744, d.
+
+# Chapitre 2. --- Les Muses divinités des eaux.
+
+Les généalogies théogoniques se contentent d'exprimer sèchement le rapport qui unit les Muses aux autres dieux, et de leur assigner une place dans le vaste corps de la religion : elles ne peuvent nous faire soupçonner quelle fut la vie de ces divinités dans la croyance commune. Les Muses n'ont pas été pour les Grecs de pures abstractions. Les premiers poètes, et les plus grands, ont cru à leur existence divine. « Quand Hésiode fait l'éloge des Muses, il n'en parle point par ouï-dire ; il les a vues lui-même.* » Les premiers vers de la Théogonie respirent en effet la religion de ces divinités et portent comme l'empreinte de leur présence. C'est dans le pays d'Ascra qu'on entendait pendant la nuit leurs voix harmonieuses, quand, enveloppées d'une nuée épaisse, elles descendaient des sommets de l'Hélicon, chantant les dieux et se communiquant aux hommes ; c'est autour d'Aganippe qu'elles formaient leurs chœurs aimables. Moins présentes dans d'autres cantons de la Grèce, elles y trouvaient cependant un culte et des autels. La vive imagination du peuple croyait les rencontrer au sein des solitudes, dans le voisinage des sources et des eaux limpides. Les Muses étaient alors de véritables personnes, mêlées, comme les hommes, à la grande vie de la nature. Ce sentiment de leur existence divine a dû se conserver longtemps dans les âmes simples, chez les habitants des campagnes, qui, vivant en communication fréquente avec la terre, les forêts et les eaux, en écoutaient tous les bruits, en recueillaient toutes les impressions. Pendant longtemps ils ont cru voir et entendre les Muses dans les endroits déserts qu'elles avaient choisis pour séjours. C'est ce rapport des Muses avec la nature que nous voudrions essayer de trouver.
+
+*) Lucien, _De Saltat._ cap. 24. Ces mots, est-il besoin de le dire, ont chez Lucien un sens sceptique. Ils n'en sont pas moins un témoignage en faveur de notre idée. Il est impossible de méconnaître dans le commencement de la Théogonie l'impression d'un sentiment religieux et la trace d'un culte local.
+
+Le plus ancien sanctuaire des Muses, celui de _Libethrion_,* était situé sur les pentes orientales du mont Olympe. Le nom donné à ce sanctuaire indique qu'il était au milieu d'un pays arrosé et coupé de nombreux ruisseaux.* Les eaux torrentueuses qui descendent de l'Olympe ont en effet, autrefois comme aujourd'hui, donné un nom à ce canton. Les Grecs modernes l'appellent _Canalia_, mot qui traduit exactement l'ancienne dénomination : [GREEK]. Ce sont des gorges sauvages, des ravins étroits et profonds, déchirés par les torrents qui roulent avec fracas des pentes supérieures de la montagne ; dans ces profondeurs humides, une puissante végétation est entretenue par l'eau, et de grands sapins s'en élancent pour aller chercher en haut le ciel et la lumière. Bien que la mer et les vastes horizons ne soient pas loin, ici on est enfermé, emprisonné dans une nature sauvage ; on n'y entend que la voix des eaux, les murmures de la forêt, ou la foudre de Jupiter qui tonne sur les sommets. C'est ici que descendaient les Muses, quittant la demeure de leur père, et plus d'une fois sans doute les Piériens qui s'approchaient de cette solitude crurent surprendre la voix même des déesses dans les bruits tour à tour éclatants et harmonieux des torrents. Un autre sanctuaire, celui de _Pimpleia_, leur était également consacré en Piérie. Strabon le place dans le canton de _Dion_, pays humide, aujourd'hui marécageux, revêtu d'épais taillis : le nom de ce sanctuaire* semble indiquer qu'il était placé près d'une source abondante qui se versait dans un bassin profond, toujours rempli par les eaux.
+
+*) Pausan. 9, 34, 4 ; Strab. 9, 2, p. 352. Voir le savant travail de M. Heuzey, sur _le mont Olympe_, p. 95.
+
+*) Le mot [GREEK], qui désigne un canal ou un ruisseau, dérive de la racine [GREEK], d'où le verbe [GREEK], les substantifs [GREEK], _etc._ Voir G. Curtius, _Grundzüge der griech. Etym._, p. 328.
+
+*) De [GREEK] _Pimpleia_ veut donc dire au propre : la source _pleine_.
+
+La colonie piérienne qui vint s'établir en Béotie, y apporta avec elle l'habitude d'honorer les Muses près des cours d'eaux et des fontaines. Le souvenir de la patrie qu'elle avait quittée lui fit donner le nom de Libethrion à cette partie de la chaîne de l'Hélicon qui est voisine de Coronée, et là, près de deux sources « qui ressemblent à des mamelles de femme et versent une eau douce comme le lait, » fut établi un culte des Muses _Libethrides_, qui était encore en vigueur à l'époque de Pausanias.* Dans la partie de l'Hélicon spécialement consacrée aux Muses, en face d'Ascra, jaillissent de nombreuses sources et courent plusieurs ruisseaux : on connaît les noms d'Hippocrène, d'Aganippe, du Permesse, de l'Olmée ; les ruines du sanctuaire des Muses se voient encore aujourd'hui sur les deux rives d'un torrent.* A Corinthe, la source de Pégase, Pirène, était consacrée aux Muses.* A Trézène, enfin, ces divinités étaient honorées sous le nom de Muses _ardalides_, épithète dont le sens est le même que celui de _libethrides_.* Les sanctuaires des Muses étaient donc toujours placés dans le voisinage des sources ou des ruisseaux. Il semble raisonnable d'en conclure que les Muses furent primitivement des divinités des eaux, et qu'en plus d'un endroit de la Grèce elles eurent cette signification pour le peuple. Cette première vraisemblance, tirée de la topographie et de l'étymologie, a besoin d'être confirmée par d'autres témoignages.
+
+*) 9, 34, 4.
+
+*) Voir notre _Notice sur les ruines de l'hiéron des Muses_, dans les _Archives des missions scientifiques_, tom. 4, 2me série.
+
+*) Pers. _Sat. Prol._ 4 ; Stat. _Sylv._ 2, 7, 1.
+
+*) Plut. _Moral._ p. 150 a ; Pausan. 2, 31, 3. --- Du verbe [GREEK], mouiller, arroser. Plutarque et Pausanias expliquent ce mot en supposant que le culte des Muses a été établi à Trézène par un certain Ardalos, inventeur de la flûte. Ce procédé commode d'étymologie est trop fréquent chez les écrivains grecs pour qu'il soit nécessaire de s'y arrêter. D'après Pausanias, Ardalos était fils d'Héphaestos, dont le culte à Trézène s'explique par la nature volcanique des côtes de l'Argolide. Héphaestos était également honoré à Epidaure (_Corp. Inscr._ 1179).
 
 ...
