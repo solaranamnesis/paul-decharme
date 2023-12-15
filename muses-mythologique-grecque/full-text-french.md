@@ -366,4 +366,26 @@ Apollon est généralement considéré comme le dieu _Musagète_, c'est-à-dire 
 
 *) _Théog._ 94-95.
 
+A la même époque, l'inspiration des aèdes qui chantaient en s'accompagnant de la lyre provient à la fois des Muses et d'Apollon. « Démodocos, dit Ulysse, je t'honore au-dessus de tous les mortels ; ou c'est la Muse, fille de Jupiter, qui t'a enseigné, ou c'est Apollon.* » Les aèdes semblent cependant tenir surtout des Muses le don divin de l'inspiration ; ils sont avec elles en communication plus familière et plus intime. « La Muse elle-même leur a enseigné leur art, et elle chérit la tribu des aèdes divins.* » Au huitième chant de l'Odyssée, Démodocos arrive conduit par le héraut. « La Muse l'a aimé plus que tous les autres mortels ; elle lui a donné le bien et le mal ; elle l'a privé de la vue, mais elle l'a doué des doux chants.* » Cette cécité envoyée par les divinités à Démodocos comme le prix du don poétique, est attribuée à plusieurs autres chanteurs et à Homère lui-même. Les Grecs avaient exprimé par cette image la clairvoyance de l'esprit dominé par l'inspiration. Recueilli, concentré en lui-même, tout entier à ses visions, le poète avait les yeux fermés aux choses du monde, mais il était doué de la vue intérieure : l'obscurité où vivait son corps favorisait les clartés de son intelligence.
+
+*) _Odyss._ 8, 486,
+
+*) _Ibid._ v. 482.
+
+*) _Odyss._ 8, 63-64.
+
+D'après la même idée, c'est pendant la nuit que l'inspiration descendait souvent dans l'âme du poète. Aux heures de silence et d'obscurité, rien n'entrave l'activité de l'esprit, rien n'en trouble le recueillement. Aussi les anciens, dit Plutarque, avaient-ils donné à la nuit le nom d'_Euphronè_.* C'est pendant la nuit que les Muses descendent en chantant des sommets de l'Hélicon,* et qu'elles se communiquent aux mortels qu'elles aiment. Les heures du milieu du jour, où tout se tait et tout dort dans la nature, étaient également favorables à l'inspiration poétique.* Les Muses se plaisaient à visiter l'esprit des hommes pendant le sommeil. Pindare encore enfant, disait-on,* allant à Thespies pendant l'été, s'arrêta fatigué sur la route et s'endormit à la chaleur du midi : des abeilles messagères des Muses vinrent se poser sur ses lèvres et y former leur rayons* : telle fut l'origine de ses chants. A Trézène, on sacrifiait sur le même autel aux Muses et à Hypnos, et l'on disait que de tous les dieux « Hypnos est le plus ami des Muses.* » Les Grecs supposaient donc que, pendant le sommeil, l'âme du poète était doucement envahie et possédée par un génie ou démon qui venait habiter en lui, et qui au réveil lui dictait ses chants. Ce démon n'était autre que la Muse.
+
+*) Plutarch. _De Curiosit._ p. 521, e. Cf. Cornut. (_De N. D._ 14, p. 53, éd. Osann.). La nuit est appelée Euphronè par Sophocle (_Elect._ 19) ; Anaximenes ap. _Diog. Laert._ 2, 4. Cf. Suidas : [GREEK].
+
+*) _Théog._ v. 10 : [GREEK].
+
+*) Une épigramme de l'_Anthologie_ (éd. Jacobs, 9, 64) nous montre Hésiode visité par les Muses dans l'Hélicon, à l'heure de midi : [GREEK].
+
+*) Pausan. 9, 23, 2.
+
+*) Les abeilles avaient un certain rapport avec les Muses. « Quand les Athéniens, dit Philostrate (_Imagg._ 8, 5) allèrent coloniser l'Ionie, les Muses servaient de guides à l'expédition sous la forme d'un essaim d'abeilles. » Ces insectes avaient aussi une sorte d'instinct divinatoire. D'après une tradition recueillie par Pausanias (9, 40 a), c'est un essaim d'abeilles qui indiqua à Saon d'Acraephion l'entrée du _Mantéion_ de Trophonios à Lébadée. --- Les _Thries_, nymphes prophétiques du Parnasse (_Hymn. Mercur._ 522-563) mangent des rayons de miel et doivent à cette nourriture la faculté prophétique.
+
+*) Pausan. 2, 31, 5. La statue d'Hypnos, sous la forme d'un jeune homme debout, accoudé et la tête penchée, a été trouvée à côté des statues des Muses de la villa de Cassius à Tivoli (_Mus. Pio. Cl._ t. 1.).
+
 ...
