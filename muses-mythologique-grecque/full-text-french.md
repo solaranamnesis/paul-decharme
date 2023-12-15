@@ -202,4 +202,168 @@ La colonie piérienne qui vint s'établir en Béotie, y apporta avec elle l'habi
 
 *) Plut. _Moral._ p. 150 a ; Pausan. 2, 31, 3. --- Du verbe [GREEK], mouiller, arroser. Plutarque et Pausanias expliquent ce mot en supposant que le culte des Muses a été établi à Trézène par un certain Ardalos, inventeur de la flûte. Ce procédé commode d'étymologie est trop fréquent chez les écrivains grecs pour qu'il soit nécessaire de s'y arrêter. D'après Pausanias, Ardalos était fils d'Héphaestos, dont le culte à Trézène s'explique par la nature volcanique des côtes de l'Argolide. Héphaestos était également honoré à Epidaure (_Corp. Inscr._ 1179).
 
+Un passage de Tzetzès* nous apprend qu'Eumélos de Corinthe reconnaissait trois Muses, filles d'Apollon, aux-quelles il donnait les noms de _Céphisso_, _Apollonide_ et _Borysthénide_. Sans doute on ne peut affirmer que cette citation d'Eumélos soit authentique ; car, dès l'antiquité, les ouvrages attribués à ce poète soulevaient les doutes de la critique.* Mais, en supposant que le texte cité par Tzetzès dérive d'une source moins ancienne qu'Eumélos, il mérite cependant de fixer l'attention : deux de ces Muses en effet portent des noms de fleuves. Peut-être même, comme le propose God. Hermann, faut-il lire _Achéloïde_ au lieu d'_Apollonide_.* Cette citation nous reporte donc à un culte primitif des Muses sur les rives du Borysthène, de l'Achéloüs et du Céphise ; ou bien, si ces noms sont dus à la fantaisie du poète, ils n'en attestent pas moins la parenté qui unissait le culte des Muses à celui des divinités fluviales.
+
+*) Ce passage est extrait du _Comment. sur les Œuvres et les jours_, pag. 6.
+
+*) Pausanias (4, 33, 3) ne reconnaissait pour authentique, parmi les œuvres attribuées à Eumelos, qu'un _prosodion_ composé pour les Messéniens envoyés en mission sacrée à Délos.
+
+*) G. Hermann, dans sa dissertation _De Musis fluvialibus Epicharmi et Eumeli_ (Opusc. 2, p. 288 sqq.) suppose qu'il s'agit ici d'un mythe analogue à celui d'Apollon Hyperboréen et ses trois frères, fils de Boréas et de Chioné. Eumélos aurait exprimé la même idée d'une autre façon, en substituant les trois Muses aux trois fils de Boréas et de Chioné.  
+Butmann (_Mythol._ 1, p. 273 sqq.) explique ainsi les trois Muses d'Eumélos : Borysthénis, la Muse du nord, rappelle les origines de la poésie grecque et se rattache aux légendes d'Apollon Hyperboréen, d'Orphée, de Linus, _etc._ ; Apollonis est la Muse olympique ; Képhisso, la vraie Muse grecque.
+
+Un témoignage encore plus précis est emprunté à la comédie d'Epicharme qui avait pour titre : Les _Muses_* ou les _Noces d'Hébé et d'Hercule_. « Epicharme, dit Tzetzès,* dans le mariage d'Hébé, nomme sept filles de Piéros et de la nymphe Pimpléis : _Nilo, Tritoè, Asopo, Heptaporé, Achéloïde, Titoplo_ et _Rhodia_. » On reconnaît facilement que tous ces noms, sauf le mot Titoplo, probablement altéré,* sont empruntés à des fleuves.* Mais est-ce par un simple caprice d'imagination que le poète sicilien a appliqué aux Muses ces dénominations ? On sait qu'Épicharme, dans sa comédie des Noces d'Hébé, avait représenté sous des traits ridicules le somptueux banquet des dieux grands mangeurs de poissons, dont Athénée nous a conservé la longue énumération.* Les divinités des eaux se transforment, pour la circonstance, en pourvoyeuses de l'Olympe. Neptune revient avec un navire chargé de coquillages de tonte espèce ; les Muses vont à la pêche en eau douce. De là les noms qui leur sont donnés par le poète. Or, comment Épicharme, dans cette parodie mythologique, aurait-il pu attribuer un pareil rôle aux Muses, si la croyance générale et populaire de son temps ne les avait reconnues comme divinités des eaux* ?
+
+*) La comédie des Muses, comme nous l'apprend Athénée (3, cap. 75) n'est qu'une édition remaniée des _Noces d'Hébé_.
+
+*) _Comment. sur les Œuvres et les jours_, p. 6.
+
+*) A [GREEK] God. Hermann substitue [GREEK]. Cf. Epicharm. _Fragm._ p. 39, éd. Krusemann.
+
+*) L'Heptaporos et Rhodia sont cités par Homère (_Iliad._ 12, 20) au nombre des fleuves qui descendent des montagnes de l'Ida. Ils sont aussi nommés dans la Théogonie (v. 341).
+
+C'est surtout auprès des sources et des simples ruisseaux que les Muses habitaient. A Delphes, à l'endroit où la fontaine Cassotis, après avoir traversé l'_adyton_, sort en un maigre filet d'eau de l'ouverture qui lui a été ménagée à travers le mur méridional du temple, il y avait primitivement, suivant Plutarque,* un hiéron des Muses. C'est ainsi du moins que Plutarque interprète les vers de Simonide : « C'est là que, pour les purifications, on puise l'eau sainte, au cours souterrain, des Muses à la belle chevelure. » Un autre fragment de Simonide reproduit la même idée : une des Muses, Clio, y est appelée « la sainte surveillante des libations. » Suivant Pindare, ce sont les Muses, ce sont « les filles, à la large ceinture, de Mnémosyne au péplos d'or, qui ont fait jaillir l'eau pure de Dircé, près des remparts et des portes de Cadmus.* » Plutarque, gardien fidèle des traditions religieuses, faisait des libations communes aux Muses, à Poséidon, et à Amphitrite, avant de terminer un banquet.* Cette association des Muses avec les divinités des eaux a dû persister dans la croyance commune ; car les textes qui y font allusion sont des époques les plus diverses. On en trouve des traces chez les mythographes, qui, suivant leur habitude, expriment cette relation par des mariages et des généalogies. D'après Apollodore et Maxime de Tyr, Calliope s'unit avec le fleuve Œagros pour donner le jour à Orphée,* Melpomène avec Achéloüs pour enfanter les Sirènes.* De l'union d'Euterpe et du fleuve Strymon naît Rhésus.
+
+*) Athén. 3, 30, p. 85, c ; 7, 114, p. 320, c.
+
+*) Sur un vase antique (_Elit. Céram._ tom. 2, pl. 86), on voit un héron aux pieds de Clio : allusion probable au caractère fluvial des Muses.
+
+*) _De Pyth. orac._, cap. 17.
+
+Ce caractère des Muses pénètre dans le Latium avec la connaissance des lettres grecques. Quand les Romains s'éveillèrent à la vie littéraire, ils furent réduits à emprunter aux Grecs un mot pour désigner le poète profane ; mais ils voulurent avoir des divinités de l'inspiration poétique, qui fussent nationales et indigènes. Ils identifièrent les Muses grecques aux _Camènes_ latines. Or les Caménes, comme l'indique la forme primitive de leur nom,* n'étaient nullement des divinités de la poésie : elles présidaient seulement aux enchantements et aux oracles. Mais elles avaient ce rapport avec les Muses, qu'elles étaient comme elles des nymphes des fontaines. Le bois qui leur était consacré, hors de la porte Capène, était arrosé par plusieurs sources qui jaillissaient non loin de la célèbre fontaine Égérie.* C'était là que les Vestales devaient puiser l'eau destinée à arroser et à purifier le temple.* Les Romains s'habituèrent donc de bonne heure à confondre les Muses avec les Nymphes. Varron ne les distinguait pas,* et Virgile mettait dans la bouche d'un de ses bergers cette invocation :
+
+_Nymphæ, noster amor, Libethrides, aut mihi carmen,_  
+_Quale meo Codro, concedite ..._
+
+*) _Lyr. Gr._ Bergk, 3me édit. p. 1134-35.
+
+*) Pind. _Isthm._ 5, 98.
+
+*) _Moral._ p. 164, d.
+
+*) Apollod. 1, 3, 2 ; Maxim. Tyr. _Dissert._ 37, 439, éd. Davis.
+
+*) Apollod. 1, 3, 4. Hygin, _Fab._ n° 141, éd. Scheffer. D'après Apollonius (_Argon._ 4, 893 sqq.), c'est Terpsichore qui s'unit avec Achéloüs.
+
+*) _Casmenæ_ = _Carmenæ_. Cf. la déesse Carmenta. --- « Numa, dit Plutarque (_Vit. Num._ 8, 7), rapportait aux Camènes la plupart des oracles.
+
+*) Sur le bois des Camènes, voir T. Liv. 1, 21 ; Juv. _Sat._ 3, 10 sqq. Sur les sources, cf. Vitruv. 8, 3 : « uti nec _fontinalis ab Camenis_ nec Marcia saliens desideretur. » Les Grecs qui habitaient Rome avaient donné à cet endroit le surnom de Ἐνυδρία (_Corp. inscr. gr._ 5968). Près de là se trouvait le temple des Camènes, où le poète Attius avait fait placer sa propre statue. (Plin. H. N. 34, 5, 10.)
+
+*) Plut. _Num._ 15.
+
+*) Apud Serv. ad. _Virg. Eclog._ 7, 21. Varron donnait de cette identité des Muses et des Nymphes une raison toute physique. C'est le mouvement de l'eau, disait-il, qui produit la musique, comme nous le voyons dans l'orgue hydraulique. Il citait trois Muses : l'une qui naît du mouvement de l'eau, la seconde produite par le son qui frappe l'air ; la troisième qui se compose de la voix pure. --- On aimerait à connaître la source grecque où Varron avait puisé cette explication. Ce témoignage confirme encore le rapport qui existait pour les Grecs entre les Muses et les eaux.
+
+C'est à la même conception qu'il faut en partie rapporter l'association des Muses avec Dionysos.* Une inscription inédite, que nous avons trouvée dans les ruines du sanctuaire de l'Hélicon, nous montre Terpsichore et Bromios confondus dans le même hommage.* On voyait au même endroit deux statues du dieu, œuvres de Lysippe et de Myron, placées sous les ombrages du bois sacré à côté de celles des Muses.* D'après Diodore, les Muses font partie du cortége de Dionysos.* A Orchomène, aux fêtes des _Agrionia_, les femmes qui célébraient les mystères dionysiaques et qui représentaient dans une sorte d'action dramatique les principaux épisodes de la vie du dieu, semblaient à un certain moment chercher partout Dionysos qui s'était enfui ; elles s'arrêtaient ensuite en disant qu'il s'était réfugié vers les Muses et qu'il se tenait caché près d'elles.* Cette fête, encore en vigueur à Orchomène du temps de Plutarque, devait remonter à une haute antiquité. Or, comment expliquer cette fuite de Dionysos auprès des Muses, si l'on ne se souvient des liens qui unissent ces divinités avec les nymphes des fontaines. Ce sont les nymphes qui ont nourri le dieu sur la montagne de Nysa ; ce sont elles qui lui servent de compagnes quand il fait retentir les forêts de sa marche bruyante. Phérécydés de Syros lui donnait pour nourrices les Hyades, qui personnifient encore mieux que les nymphes l'humidité de la nature* ; le dieu lui-même portait quelquefois le surnom d'_Hyès_. « Les Grecs, dit Plutarque, ont donné à Dionysos le nom d'_Hyès_ parce qu'il préside à la nature humide.* » On ne doit donc pas s'étonner de le voir associé avec des divinités des eaux, telles que les nymphes et les Muses.
+
+*) C'est dans un sens différent, comme nous le verrons plus loin, que Dionysos était quelquefois considéré comme dieu _Musagète_.
+
+*) N° 52 de notre _Recueil d'Inscr. béot. inéd._ D'après une inscription du _Corpus_ (n° 1212, l. 13-14) un artiste vainqueur consacre sa couronne aux Muses Héliconiennes et à Dionysos Cadméen. --- En Piérie, le culte de Dionysos était également associé à celui des Muses. Eurip. Bacch. 565 : [GREEK]. Cf. Conon, 45.
+
+*) Pausan, 9, 33, 1.
+
+*) Diod. 4, p. 148 d. D'après un autre passage du même auteur (1, p. 11 b) elles sont compagnes d'Osiris, souvent assimilé à Dionysos.
+
+*) Plutarch. _Symp._ 8, _Proœm._ Il y a peut-être quelque analogie entre cette légende orchoménienne et la légende thrace, suivant laquelle Dionysos poursuivi par le roi Lycurgue s'était précipité dans les flots de la mer.
+
+*) _Schol. Arat._ 172.
+
+*) De Is. et Osirid. cap. 34 ; cf. Suidas ; Photius, v. [GREEK].
+
+A la même idée se rattachent les rapports des Muses avec les Sirènes. La légende qui nous fait assister à la lutte de ces divinités dans le canton d'Aptera* témoigne de la communauté d'attributions qui les unissait. Elles avaient également en partage le don des chants harmonieux ; elles étaient également des génies des eaux. Quand le culte des Muses fut apporté du continent dans l'île de Crète, il se trouva en présence d'une croyance analogue. De là une lutte où les Muses furent victorieuses, c'est-à-dire où leur religion parvint à s'établir en Crète et à remplacer celle des Sirènes. Celles-ci conservèrent le don du chant ; mais en abandonnant le continent pour devenir des Muses de la mer, elles se changèrent en génies malfaisants, habitant les côtes escarpées et les écueils où elles attiraient les vaisseaux par leurs chants ; l'imagination grecque les avait reléguées sur les côtes de la Sicile et de la Grande-Grèce. La tradition crétoise prévalut dans la croyance générale, et l'on rencontre chez les écrivains grecs de fréquentes allusions au combat des Muses et des Sirènes.* Quelquefois cependant les rapports de ces divinités, au lieu de revêtir la forme d'une opposition et d'une hostilité mythologique, s'expriment au contraire par des liens d'union et de parenté. Plusieurs mythographes font naître les Sirènes de l'union d'Achéloüs, soit avec Melpomène, soit avec Terpsichore* ; et certaines versions de la légende de l'enlèvement de Perséphone représentent les Sirènes jouant avec la déesse dans les prairies d'Achéloüs. Elles sont alors de véritables nymphes fluviales, en relation intime avec les Muses.
+
+*) Pausan. 9, 34, 3 ; Steph. Byz. [GREEK] ; Eustath. p. 85, 36.
+
+*) Voir, entre autres, Plutarch. _Symp._ 7, 5, 4 ; 9, 14, 5-6.
+
+*) Schol. Apollon. 4, 892 ; Eustath. 1710, 40 ; Apollod. 1 ; 3, 4 ; Hygin, _Fab._ 141.
+
+Faut-il donc penser, d'après tous ces textes, que dans la croyance antique les Muses se confondaient avec les Nymphes, et que les Grecs n'établirent jamais de distinction essentielle entre ces deux groupes de divinités ? C'est la conclusion extrême qu'ont adoptée Creuzer et Pétersen, en se fondant principalement sur les textes des lexicographes. Or, d'après Hésychius,* Nymphe et Muse sont bien deux mots synonymes ; mais Étienne de Byzance,* Suidas et le Scholiaste de Théocrite* nous apprennent que les Muses portaient le nom de nymphes chez les Lydiens : ce qui implique qu'il n'en était pas de même partout. Il ressort d'ailleurs, des textes mêmes invoqués par Pétersen, que les Lydiens donnaient aux Muses le nom de nymphes, et non aux nymphes celui de Muses.* Ainsi, même en Lydie, le mot nymphe était un terme générique qui comprenait les Muses entre autres divinités ; et là, comme dans le reste de la Grèce, les Muses, sans se confondre avec les Néréides ou les nymphes terrestres, faisaient partie, comme celles-ci, de la grande famille des divinités des eaux.
+
+*) V° [GREEK].
+
+*) V° [GREEK].
+
+*) Ad. _Theocr._ 7, 92.
+
+*) C'est ce que fait remarquer Butmann, combattant l'opinion de Creuzer et de Petersen. « Ainsi, dit-il, tous les Doriens sont Grecs, mais tous les Grecs ne sont pas Doriens. »
+
+Tel fut, on n'en peut douter, le sens primitif et naturaliste de la croyance aux Muses. Mais comment expliquer le double caractère de ces divinités ? Par quel travail latent de l'imagination hellénique ces génies des eaux devinrent-ils, avec le temps, les divinités du chant et de l'inspiration poétique ? Faut-il croire que, chez les premières populations de la Grèce, le sentiment de l'harmonie musicale s'éveilla d'abord au bruit de l'eau, à l'harmonie naturelle des fleuves et des torrents ? Les paroles mesurées et cadencées, les modulations de la voix humaine, ne parurent-elles que les échos des grandes voix de la nature qui se communiquait aux hommes ? C'est ce qu'il serait téméraire d'affirmer. Malgré tous les récents efforts de la science, l'imagination qui a créé, modifié, et transformé les mythes, n'a pas encore livré ses secrets. Pour confirmer nos opinions, qu'il nous suffise de chercher si, dans la mythologie grecque comme dans la mythologie védique, certaines divinités, dont les attributions se rapprochent de celles des Muses, ne portent pas comme elles le double caractère de puissances naturelles et de divinités intellectuelles.
+
+Une des divinités dont les images étaient quelquefois associées à celles des Muses,* Athéné, dont on connaît à l'époque historique les attributions variées, avait primitivement un sens purement naturaliste. Le surnom de _Tritonia_ qu'elle portait à Phénée en Arcadie,* celui de _Tritogenia_ qui lui fut donné par les Minyens de Béotie,* attestent qu'à l'époque pélasgique elle n'était autre chose qu'une personnification féminine de l'élément humide. Elle paraît aussi avoir représenté l'océan des airs, source des eaux qui tombent sur la terre. Mais son caractère changea de bonne heure, et déjà, dans la Théogonie, elle est la fille de Zeus et de Métis, c'est-à-dire la sagesse émanée de l'intelligence divine.* Apollon, le chef et le conducteur des Muses ; Apollon, le dieu de l'inspiration poétique et prophétique, n'était primitivement qu'une divinité solaire qui avait sa place à côté de Phaéton, d'Hélios et d'Hypérion.* Hermès qui personnifie le crépuscule était en même temps le dieu de la lyre. Mais c'est surtout dans les _Védas_ que les analogies sont remarquables. On reconnaît généralement dans les _Apas_ ou _Apsaras_ du Rig-Véda le premier type des nymphes grecques, si intimement unies, comme nous l'avons vu, avec les Muses. Or, le Véda fait des Apas les déesses de la parole, _vâc_, et il appelle _Savitri_ (le Gandharva céleste) _vâcaspati_, époux ou maître de la parole : double image qui semble personnifier et la chute bruyante de la pluie et le grondement du tonnerre dans les nuages. Les Apas ou nymphes furent donc primitivement des divinités des nuages considérés comme sources des eaux et des voix célestes. De même, _Saraswati_, dont la poésie épique fit la déesse de l'éloquence, était à l'origine une divinité des eaux. Dans le Rig Yéda elle a un double caractère. Tantôt c'est une divinité du sacrifice, où elle assiste accompagnée d'_Ilâ_, la parole poétique, et _Bhârati_, l'action déclamatoire ; « elle inspire les paroles saintes ; elle est le trésor de la prière* » ; tantôt elle est représentée comme « un torrent immense, admirable, brillant, impétueux, qui s'en va en murmurant,* » ou comme une des sept rivières qui partent du ciel pour couler sur la terre.* On ne peut méconnaître certaines analogies entre cette conception et celle des nymphes transformées en Muses, et l'origine du double caractère de ces divinités doit peut-être se chercher dans la conception primitive du nuage, d'où s'échappent les eaux qui arrosent la terre, d'où sort en même temps la voix des dieux.*
+
+*) A Corinthe, les Muses étaient représentées sur la base d'une statue d'Athénè ; à Tégée, un autel consacré à cette divinité était orné des images des Muses et de Mnémosyne (Pausan. 2, 3, 1 ; 8, 47, 3).
+
+*) Pausan. 8, 14, 4.
+
+*) Pausan. 9, 33, 5.
+
+*) _Théog._ v. 886.
+
+*) Voir Maury, _Relig. de la Grèce_, 1, 127 et suiv.
+
+*) _Rig Véda_, trad. Langlois, 1, p. 7 ; cf. p. 348, 390, 254, _etc._
+
+*) _Ibid._, trad. Langlois, tom. 2, p. 501.
+
+*) _Ibid._, tom. 3, p. 87, 168, 169, _etc._
+
+*) Notre incompétence ne nous permet pas de pousser plus loin ce rapprochement. Nous devons les indications qui précèdent à l'obligeance de M. Hauvette-Besnault.
+
+# Chapitre 3. --- Les Muses et l'inspiration prophétique et poétique.
+
+La parenté des Muses avec les divinités des eaux explique en partie leur caractère fatidique. Génies harmonieux des sources et des eaux limpides, les Muses sont par là même douées du don prophétique. « Par leurs chants, dit Hésiode, elles réjouissent dans l'Olympe le grand esprit de Jupiter en disant ce qui est, _ce qui sera_, ce qui a été.* » Sans doute, pendant toute la durée de l'hellénisme, ce fut Apollon qui présida surtout à la divination et aux oracles ; mais le dieu de la lumière n'avait pas seul en partage cette attribution. La curiosité de l'homme sur tout ce qui touche à sa destinée, son ardent désir de connaître les choses cachées et de pénétrer les secrets de l'avenir, lui faisaient chercher partout des signes de la volonté et de la science divines : il attribuait aux puissances élémentaires de la nature, telles que la Terre et les Eaux, le don de lui révéler les vérités que la faible vue de son intelligence ne pouvait apercevoir. A Delphes, les populations primitives de la Grèce avaient établi le sanctuaire et l'oracle de Gæa,* remplacé ensuite par celui de Thémis, détrôné enfin par celui d'Apollon, dont le culte fut apporté par les tribus helléniques. A toutes les époques et dans les différentes parties de la Grèce, l'eau était considérée comme douée d'une vertu prophétique et inspiratrice. Le règne de Poséidon était peuplé de divinités fatidiques, répandues partout, dans le cours des ruisseaux comme dans les profondeurs des mers. Nérée, le vieillard de la mer, fils de Pontos, qui habite au fond de l'océan, est, suivant la Théogonie, une divinité véridique, et qui ne trompe point.* Dans l'Odyssée, c'est Protée fécond en métamorphoses, dieu infaillible comme Nérée, qui annonce à Ménélas le meurtre d'Agamemnon tombé sous les coups d'Égisthe.* Dans l'_Oreste_ d'Euripide, le même rôle est rempli par Glaucos, dont les marins attestaient encore au temps de Pausanias la véracité et l'infaillibilité prophétique.* Quelques-unes des divinités féminines de la mer, Leucothéa, les Néréides _etc._, ont la même vertu, et les noms de deux Océanides citées dans la Théogonie, _Iduia_ et _Métis_,* se rapportent évidemment à la science divinatoire. Parmi les dieux-fleuves, enfin, le plus important, le plus ancien, suivant Hésiode, des trois mille cours d'eau nés de l'Océan et de Téthys, possédait entre autres attributions le don de prophétie.
+
+*) _Théog._ v. 37-38.
+
+*) Voir les premiers vers des Euménides d'Eschyle. Cf. Plutarch. _De Pyth. orac._, p. 402 c.
+
+*) _Théog._ 233 : [GREEK]. --- Outre les cinquante Néréides, il avait deux fils, dont l'un [GREEK] était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
+Une autre divinité marine, Triton, jouissait aussi de la faculté prophétique. Dans le poème d'Apollonius (4, 1552 sqq.), c'est lui qui indique aux Argonautes la sortie du lac Tritonis ; il disparaît en emportant le _trépied d'Apollon_ qui lui a été offert.
+
+*) _Odyss._ 4, 350 sqq. --- Cf. l'imitation de Virgile (_Georg._ 4, 392) :  
+_« Novit namque omnia vates, »_  
+_« Quæ sint, quæ fuerint, quæ mox ventura trahuntur. »_
+
+*) Voir sur Glaucos la légende d'Anthédon, dans Pausanias (9, 22, 7). Les diverses traditions sur le dieu des marins et des pêcheurs se trouvent réunies dans Athénée (7, p. 147-148). Suivant Nicandre cité par Athenée, Glaucos avait enseigné la _mantique_ à Apollon lui-même.
+
+*) v. 352 ; 358.
+
+Les génies qui habitaient les sources et les fontaines furent aussi considérés de bonne heure comme capables d'instruire l'homme sur l'avenir et de lui inspirer une science divine. Les nymphes des eaux eurent leurs oracles, antérieurs peut-être à celui d'Apollon, et dont le crédit dut se conserver assez longtemps dans quelques parties de la Grèce. Sur le mont Cithéron, au-dessus de Platée, était un antre des _Nymphes Sphragitides_ : là, suivant Plutarque et Pausanias, il y avait primitivement un _mantéion_ où se rendaient les habitants du pays ; à peine avaient-ils pénétré dans l'antre qu'ils étaient possédés par les génies du lieu et prédisaient l'avenir. On donnait à ces inspirés des nymphes le nom de _nympholeptes_.* Les prophéties du devin béotien Bacis passaient pour avoir été dictées par les nymphes.* « Habitantes des antres, nourries par le souffle de la terre, les nymphes ont fait jaillir les sources des eaux inspiratrices pour l'oracle divin de la Muse.* »
+
+*) Plut. _Arist._ 2, 4 ; Pausau. 9, 5, 3. Cf. _Corp. Inscr._ 456 : [GREEK].  
+Ces inspirés étaient quelquefois désignés par le mot [GREEK] (Poll. _Onom._ 1, 1, 19).
+
+*) _Schol. ad. Aristoph. Pac._ 1071 ; Tzetzès ad. _Lycophr._ 1276. Bacis, comme le nom l'indique, n'est probablement qu'un personnage fictif.
+
+*) Porphyr. _De Antr. Nymph._ 8, p. 8, cite ce passage d'un hymne à Apollon pour établir que les antres étaient consacrés aux nymphes, particulièrement à celles des eaux.
+
+Il y a une telle ressemblance entre les nymphes prophétiques des eaux et les Muses elles-mêmes, qu'on peut presque les identifier. Les rapports des Muses avec la divination* sont d'ailleurs attestés par plusieurs textes. « Elles m'ont inspiré, dit Hésiode,* une voix divine pour chanter _ce qui sera_ et ce qui a été. » --- « Rends tes oracles, ô Muse, disait Pindare,* et je serai ton prophète. » Suivant Plutarque, la première sibylle provenait de l'Hélicon, où elle avait été nourrie par les Muses.* A Delphes, elles étaient considérées comme les assistantes et les gardiennes de l'oracle.* Dans les _Argonautiques_, ce sont elles qui enseignent la divination à Aristée.* Tant que la Pythie et les prêtres exprimèrent les oracles en vers, les Muses purent être considérées comme la source de leur inspiration ; il n'en fut plus de même quand les devins perdirent le langage poétique.* Le caractère divinatoire des Muses s'explique d'ailleurs aussi bien par leur union avec Apollon que par leur association avec les divinités des eaux, et rien ne permet d'affirmer qu'il y eut jamais dans l'antiquité grecque des oracles directs des Muses. La confusion entre la poésie et la divination, dont on trouve quelques traces dans les textes antiques, a son origine dans les poésies orphiques et n'appartient point, par conséquent, aux temps primitifs de la Grèce.* Dans Homère, prêtres, devins et poètes, sont des personnages qui remplissent des rôles tout à fait différents. Cette distinction paraît s'être maintenue à toutes les époques. Apollon devint de bonne heure le dieu des oracles par excellence,* et il ne partagea plus avec les Muses que les attributions de l'inspiration poétique et musicale.*
+
+*) M. Guédéonof (_Ann. Inst. Arch._ 1852) a faussement conclu du caractère divinatoire des Muses à leur sens fatal primitif. Le Proœmium de la Théogonie, qu'il invoque comme autorité, témoigne seulement de l'esprit prophétique inspiré par les Muses à leurs initiés. Il est impossible d'assimiler, comme il le fait, les Muses aux Moires : celles-ci donnent aux hommes le bien et le mal, mais elles ne leur révèlent nullement l'immuable avenir. » [GREEK], dit Plutarque (_Symp._ 9, 14, p. 745, d).
+
+*) _Théog._ v. 32.
+
+*) _Fragm._ n° 127, _Lyr. Gr._ Bergk. --- C'est une locution métaphorique qui se retrouve dans un autre fragment (n° 67) de Pindare : [GREEK].
+
+*) _De Pyth. orac._ p. 398, c. La Sibylle appartient également au règne des eaux, comme l'indique le nom d'_Hydolè_, femme des eaux, donné à sa mère (Suidas, v. [GREEK].)
+
+*) _Ibid._ p. 402, c.
+
+*) Apollon. 2, 511-512.
+
+*) Voir le traité spécial de Plutarque sur cette question : _que la Pythie n'énonce plus ses oracles en vers._
+
+Apollon est généralement considéré comme le dieu _Musagète_, c'est-à-dire comme le chef du chœur des Muses. Son rôle ne se confond point cependant avec celui de ces divinités. Les plus anciennes descriptions de la vie des dieux sur l'Olympe nous montrent Apollon jouant de la cithare, tandis que les Muses forment un chœur de chant. « Les dieux, dit Homère, ne manquent pas non plus des sons de la lyre gracieuse que tient Apollon, ni des chants des Muses qui tour à tour font entendre leur belle voix.* » L'hymne homérique à Apollon Pythien nous retrace un tableau plus développé de la vie poétique des dieux : pour charmer les loisirs divins, les Muses chantent de leur voix magnifique ; les Charites, les Heures, Harmonia, Hébé et Aphrodite, forment un chœur de danse ; Phébus-Apollon joue de la cithare.* D'après la _Théogonie_, ce sont les Muses qui inspirent sur la terre les chanteurs ; c'est Apollon qui est le dieu des citharèdes.* La distinction entre la lyre d'Apollon et le chant des Muses était donc très-nettement établie à la première époque littéraire de la Grèce, et, plus tard, quand on donna des instruments musicaux comme attributs aux Muses, on s'écarta de l'idée mythologique primitive.
+
+*) Strabon (7, 330), Quintilien (1, 10, 9,) et plusieurs autres écrivains, ont été trompés par les Orphiques, quand ils ont affirmé que les poètes primitifs, enfants des Muses, étaient devins en même temps. C'est ce qu'a prouvé surabondamment Lobeck, dans son _Aglaophamus_ 1, p. 255-270. Voir cette confusion faite par les écrivains orphiques, entre la poésie et la divination dans les passages suivants : Clem., _Strom._ 1, 400 ; _Schol. Eurip, Alcest._ 985 ; Platon, _Protag._ p. 316, d. Cf. Pausan. 9, 30, _etc._
+
+*) D'autres divinités cependant communiquaient aussi aux hommes l'inspiration divinatoire. Dionysos, par exemple, avait à Amphiclée en Phocide un sanctuaire où il révélait quelquefois l'avenir à ses inspirés (Pausan. 9. 33, 10). Cf. Plutarch, _Symp._ 7, 10, 17 ; _C. I._ 3190.
+
+*) Cette distinction est très-nettement établie dans Strabon (10, pag. 717).
+
+*) _Iliad._ 1, 604.
+
+*) _Hymn. Apoll. Pyth._ v. 10 sqq, éd. Baumeister. Cf. l'inscription du coffre de Cypsélos à Olympie (Pausan. 5, 18, 4).
+
+*) _Théog._ 94-95.
+
 ...
