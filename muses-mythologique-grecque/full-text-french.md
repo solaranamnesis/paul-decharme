@@ -596,4 +596,49 @@ Quelquefois enfin, en dehors du culte public, les Muses étaient l'objet d'un cu
 
 # Chapitre 5. --- Muses étudiées individuellement.
 
+Nous venons d'étudier le groupe des Muses ; il nous reste à distinguer leurs personnes, à indiquer le rôle particulier, à esquisser la physionomie propre de chacune : « _Facies non omnibus una, nec diversa tamen._ » Question délicate, qui exclut une rigoureuse précision. Les idées religieuses des Grecs échappent en effet, par leur mobilité, à l'exactitude des définitions, et si on veut les enfermer dans des catégories, on les altère. Quand on a établi l'ordre chronologique des témoignages, quand on a essayé de remonter aux sources, on n'a pas tout fait : il faut encore chercher à concilier ou à expliquer les contradictions des textes, et souvent on est réduit à de pures conjectures fondées sur de légers indices, et à une sorte de divination qui est très-loin de la science.
+
+On se tromperait singulièrement, si l'on croyait que les attributions particulières des Muses ont été toujours aussi bien établies qu'on les trouve nettement définies dans les vers d'Ausone.* Chez les plus anciens poètes, il n'y a pas trace de la division qui prévalut plus tard. Entre les Muses, Calliope seule se distingue par sa prééminence : elle est la première dans le chœur sacré. Quant aux autres personnes du groupe, elles n'ont point de fonctions distinctes, et l'étymologie seule de leurs noms indique la variété de leurs significations. Elles sont confondues dans le même chœur : l'esprit d'abstraction n'a pas encore assigné à chacune d'elles la présidence d'un genre littéraire, d'un art ou d'une science. En pareille matière, il serait téméraire de fixer une date. Les attributions des Muses ne paraissent point cependant avoir été régulièrement établies et généralement reconnues avant le temps des empereurs.
+
+*) Auson. _Idyll._ 20.  
+_« Clio gesta canens transactis tempora reddit. »_  
+_« Melpomene tragico proclamat mœsta boatu. »_  
+_« Comica lascivo gaudet sermone Thalia. »_  
+_« Dulciloquos calamos Euterpe flatibus urget. »_  
+_« Terpsichore affectus cithara movet, imperat, auget. »_  
+_« Plectra gerens Erato saltat pede, carmine, vultu. »_  
+_« Carmina Calliope libris heroïca mandat. »_  
+_« Uranie cæli motus scrutatur et astra. »_  
+_« Signât cuncta manu, loquitur Polyhymnia gestu. »_
+
+C'est ce qu'il est permis de conjecturer d'après les statues et les représentations figurées que nous connaissons. Sur les monuments les plus anciens, ou les Muses ne portent point d'attributs, ou ces attributs sont irrégulièrement distribués. Des Muses archaïques qui nous ont été conservées et qu'on voit aujourd'hui au Musée de Venise, une seule, Melpomène, tient un masque : attribut qui lui a été probablement donné à une époque postérieure. Les autres se ressemblent entre elles exactement, et l'on pourrait facilement les prendre pour un groupe d'Heures ou de Charites.* Pausanias, qui avait vu plusieurs groupes de Muses dans l'Hélicon, ne dit rien de leurs attributs. Les Muses de Philiscus de Rhodes, placées à Rome sous le portique d'Octavie, paraissent également s'être distinguées entre elles plutôt par leur attitude que par leurs symboles.* Sur les peintures de vases, les attributs des Muses ne sont pas distribués avec régularité, comme ils le seront dans les sculptures des temps romains. C'est ainsi que la double flûte donnée à Mélétè sur une amphore de Vulci,* est attribuée ailleurs à Terpsichore,* ailleurs à Clio,* ailleurs encore à Uranie.* Calliope, qui d'ordinaire ne porte jamais d'attribut musical, est représentée jouant du _trigonon_ sur un vase du musée Blacas.* La fantaisie des artistes ne suffit pas à expliquer cette variété ; car, si les fonctions particulières des Muses avaient été bien définies pour les poètes et les lettrés, la tradition serait devenue une loi que les artistes auraient scrupuleusement respectée. L'usage de donner à chaque Muse un attribut s'établit sans doute d'assez bonne heure : c'était une nécessité de l'art. Des Muses exactement semblables entre elles, comme les statues archaïques de Venise, sont les types d'un âge primitif : avec le développement d'un art plus libre, on devait songer à introduire la variété dans le groupe des Muses, en donnant à chacune une attitude, une physionomie différentes, et un symbole qui permît de la reconnaître. Mais la tradition sur ce point ne nous apparaît constante et régulière que dans les peintures d'Herculanum et sur les statues d'époque romaine. C'est surtout d'après les monuments et les textes de cette période que nous allons décrire successivement chaque Muse, en suivant l'ordre hésiodique.
+
+*) Pour la description de ces statues, voir un article de M. Guédéonoff : Groupes de Muses antiques, dans les _Annal. de l'Inst. Arch._ 1852.
+
+*) Plin. H. N. 36, 5.
+
+*) _Mon. inéd. Inst. Arch._ t. 5, pl. 37.
+
+*) _Musée Blacas_, p. 18, 22. Terpsichore, appelée quelquefois [GREEK] sur les vases peints, tient le plus souvent la lyre.
+
+*) _Elit. Céram._ 2, 86 a ; _Mus. Blac._ 4.
+
+*) _Mon. inéd. Inst. Arch._ t. 2, pl. 36.
+
+*) _Mus. Blac._ p. 18 ; 22.
+
+_Clio_, comme l'indique l'étymologie de son nom,* est la Muse qui chante les exploits glorieux. La poésie, chez les Grecs, s'est développée longtemps avant la prose : nous devons donc supposer que, dans le chœur primitif des Muses, Clio était considérée comme chantant, avec accompagnement de la cithare ou de la phorminx, les nobles actions des hommes et des héros. D'après Pindare, la phorminx d'or est l'attribut commun d'Apollon et des Muses à la noire chevelure,* et, suivant Callimaque, c'est Clio qui a trouvé les doux accents de la cithare qui anime les beaux chœurs.* Son rôle était donc analogue à celui de Calliope, et mal distingué de celui de ses sœurs. Au temps de Plutarque, la fonction particulière de Clio n'était pas encore généralement reconnue : dans les _Propos de table_, le rhéteur Hérodes revendique pour elle le genre du panégyrique, et considère Polymnie seule comme présidant à l'histoire.* Une épigramme de l'Anthologie nous représente Clio comme une Muse de la divination.* On voit combien la tradition, soumise aux fantaisies des poètes et des lettrés, était vague et incertaine. Mais tous les monuments antiques qui nous sont parvenus nous désignent Clio comme la Muse de l'histoire. Sur les peintures d'Herculanum elle est représentée avec cette inscription : [GREEK],* et ses statues sont toujours accompagnées des attributs de ce rôle : un manuscrit qu'elle déroule, et le _scrinium_. Quelquefois sa main droite tient la simple trompette (_tuba_), qui lui sert à proclamer les grandes actions ; ou bien encore la clepsydre, symbole de l'ordre chronologique des événements de l'histoire. Son visage a une expression de sérénité, de réflexion, de pénétration. C'est l'histoire grave, impartiale et austère, telle que Thucydide en a conçu et exprimé l'image.
+
+*) Des mots [GREEK]. Clio, dit Diodore (4, 7), par les éloges qu'elle donne, procure une grande gloire à ceux, qui en sont l'objet.
+
+*) _Pyth._ 1, 1.
+
+*) [GREEK].
+
+*) Plutarch, _Symp._ 14, 1.
+
+*) Anthol. Jacobs, 2, 9, 505 : [GREEK].
+
+*) _Pitt. antich. Ercol._ tom. 2, tab. 2.
+
 ...
