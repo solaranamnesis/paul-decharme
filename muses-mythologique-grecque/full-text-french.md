@@ -388,4 +388,212 @@ D'après la même idée, c'est pendant la nuit que l'inspiration descendait souv
 
 *) Pausan. 2, 31, 5. La statue d'Hypnos, sous la forme d'un jeune homme debout, accoudé et la tête penchée, a été trouvée à côté des statues des Muses de la villa de Cassius à Tivoli (_Mus. Pio. Cl._ t. 1.).
 
+Une fable ingénieuse de Platon* exprime ce divin ravissement de l'âme du poète et sa retraite dans la vie idéale. « A la naissance des Muses, quand fut créée la musique, quelques hommes de ce temps-là furent saisis d'une volupté si grande que, toujours chantant, ils oublièrent de manger et de boire, et moururent doucement sans douleur : c'est d'eux que sont venues les cigales, race privilégiée des Muses, qui vivent sans souffrir de la faim, et qui, sans jamais manger ni boire, chantent dès le premier jour jusqu'à leur mort ; puis, s'en allant vers les Muses, rapportent à chacune d'elles les noms de leurs fidèles d'ici-bas. »
+
+Quelquefois cependant, cette possession de l'esprit par la divinité avait un caractère plus violent et était considérée comme un véritable délire. Pour les Grecs, le délire, loin d'être un mal, semblait une faveur des dieux : l'homme qui en était atteint était soumis à l'action immédiate de la divinité dont il exprimait malgré lui la pensée. « Les plus grands biens, dit Platon, nous arrivent par un délire inspiré des dieux ; c'est dans cet état que la prophétesse de Delphes et les prêtresses de Dodone ont rendu aux citoyens et aux états de la Grèce mille services importants ... Dans les grandes calamités, un saint délire s'emparant de quelques mortels les rend prophètes et leur fait trouver un remède à ces maux.* » Les paroles du délirant étaient donc regardées comme une révélation de la divinité à l'homme. Mais chaque dieu produisait son genre de délire particulier. Dans le Phèdre,* Platon en distingue quatre : il attribue le délire des prophètes à Apollon, celui des initiés à Dionysos, celui des poètes aux Muses, à Aphrodite et à Éros celui des amants. Le délire particulier aux poètes se trouve surtout expliqué et développé dans l'_Ion_, où l'inspiration poétique est considérée comme une véritable fureur, analogue à celle des Corybantes et des Bacchantes. En faisant la part de l'ironie qui règne dans ce dialogue, on n'en doit pas moins reconnaître que Platon a exprimé, à sa façon et dans son magnifique langage, mais sans les dénaturer, les idées de ses contemporains sur l'inspiration poétique. « Ce n'est point à l'art, dit-il, mais à l'enthousiasme et à une sorte de délire, que les bons poètes épiques doivent tous leurs beaux poèmes. Il en est de même des bons poètes lyriques. Semblables aux Corybantes qui ne dansent que lorsqu'ils sont hors d'eux-mêmes, ce n'est pas de sang-froid que les poètes lyriques trouvent leurs beaux vers ; il faut que l'harmonie et la mesure entrent dans leur âme, la transportent et la mettent hors d'elle-même.* » Platon va plus loin. Dans l'état d'inspiration, le poète perd complètement sa raison et n'a plus conscience de lui-même ; sa bouche n'est que l'organe du dieu, comme une flûte qui rend des sons sous les lèvres qui la pressent. « En leur ôtant la raison, dit-il, en les prenant pour ministres, ainsi que les prophètes et les devins inspirés, le dieu veut nous apprendre que ce n'est pas d'eux-mêmes qu'ils disent des choses si merveilleuses, puisqu'ils sont hors de leur bon sens, mais que c'est le dieu lui-même qui nous parle par leur bouche. » Plus loin, l'état d'inspiration se trouve ainsi résumé : « Nous appelons cela _être possédé_ ; car le poète ne s'appartient plus à lui-même, il appartient à la Muse. » La _possession_, tel est donc le mot qui définit le mieux l'inspiration poétique, telle que l'entendaient les Grecs. Ils expliquaient ainsi l'enthousiasme, les élans passionnés, ce qu'il y a de plus élevé et de vraiment divin dans l'intelligence : les œuvres du génie leur inspiraient un tel respect qu'ils n'en faisaient point honneur à la nature humaine, mais qu'ils les attribuaient à l'action d'un dieu.
+
+*) _Phèdre_, 41.
+
+*) Plat. _Phœd._ p. 244. Cette idée est assez longuement développée dans Platon ; mais ces textes étant connus de tout le monde, il n'est pas nécessaire de s'y arrêter.
+
+*) P. 245 a.
+
+*) _Ion._ p. 533-534.
+
+L'âme où venait habiter la Muse était une âme sacrée, chérie de la divinité. « Tous ceux que Jupiter n'a pas aimés, dit Pindare, sont effrayés quand ils entendent la voix des Piérides.* » Au contraire, entre le poète et la Muse il y avait une communication intime, des rapports familiers, tels que ceux d'un maître avec son disciple ou d'une mère avec son enfant. Cette double idée se trouve souvent exprimée dans les textes et sur les monuments de l'art grec. Un vase peint* nous représente Terpsichore la tête inclinée sur un instrument triangulaire dont elle touche les cordes ; en face d'elle est un jeune homme debout, tenant de la main gauche une lyre et s'appuyant de la droite sur un grand rameau de laurier ; il considère attentivement la Muse, et semble ravi en écoutant ses leçons. La légende indique que ce jeune homme est Musée.* Tous les chanteurs mythiques et primitifs sont considérés comme fils des Muses. Orphée était né de l'union d'Apollon et de Calliope. Linos, Hymenæos, Ialemos, avaient également les Muses pour mères : un fragment de Pindare nous représente ces divinités pleurant sur la mort prématurée de leurs fils.* Les Muses, qui s'étaient entretenues familièrement avec Hésiode dans les vallées de l'Hélicon, vinrent aussi rendre les derniers honneurs à sa cendre sur son tombeau de Locride.* Elles n'abandonnaient point, même dans la mort, celui qui pendant sa vie avait été l'organe de leurs chants. Aussi les artistes anciens avaient-ils soin de représenter sur les tombeaux des poètes les images de ces divinités ; le sarcophage ainsi orné était une sorte de temple des Muses qui recevait le poète défunt.*
+
+*) _Pyth._ 1, 25-26, éd. Bergk.
+
+*) C'est une amphore de Vulci publiée dans les _Monuments inédits de l'Institut archéologique_, vol. 5, pl. 37. Voir dans les _Annales_ (1852) un article de M. Otto Jahn sur ce sujet.
+
+*) Peut-être la même représentation se trouve-t-elle sur plusieurs vases peints où l'on croit reconnaître une Muse et Apollon.
+
+*) _Fragm._ n° 116 (_Lyr. Gr._ Bergk). Pindare lui-même, par une locution métaphorique, se disait fils de la Muse : [GREEK] ... (_Nem._ 3, 1).
+
+*) Dans l'épigramme d'Alcée (_Anth._ Jacobs, 7, n° 55) sur le tombeau d'Hésiode, ce sont les nymphes qui lavent elles-mêmes le corps du poète.
+
+*) Tel est sans doute le sens d'un vers que nous trouvons à la fin d'une inscription (_C. I._ 6187) gravée sur le tombeau d'un poète musicien : [GREEK].  
+De même sur un sarcophage antique, aujourd'hui dans la cathédrale de Palerme, se voit un bas-relief des neuf Muses, où l'artiste a eu l'intention évidente d'indiquer que le défunt avait été favorisé des Muses pendant sa vie et instruit par elles. Sur ce bas-relief, voir un article de Wieseler dans les _Annal. Inst. Arch._ 1861.  
+Cependant, toutes les fois qu'on rencontre les Muses sur les sarcophages, il n'en faut pas conclure qu'elles désignent nécessairement la sépulture d'un poète. Sur un tombeau du Musée de Berlin (Gerhard, _Arch. Zeit._, jul. 1843., pl. 6.) on voit un bas-relief des Muses ; mais, comme l'indique l'inscription, ce tombeau n'est nullement celui d'un poète. Alors la représentation des Muses est simplement une de ces images sous lesquelles les Grecs aimaient à voiler l'idée de la mort. De même, sur les vases peints, le mariage d'Apollon et de Calliope, et l'union de Vénus et d'Adonis (_Elit. Céram._ pl. 80, pag. 257).
+
+Génies bienfaisants, amis de l'humanité, les Muses interviennent dans les circonstances les plus importantes de la vie : elles ont une part dans les mariages comme dans les funérailles. La belle amphore, œuvre de Clitias et d'Ergotimos,* nous représente les Muses accompagnant les dieux qui se rendent aux noces de Thétis et de Pélée. En Béotie, où elles étaient particulièrement honorées, la tradition* rapportait qu'elles étaient venues assister au mariage de Cadmus et d'Harmonia, et qu'elles y avaient fait entendre leurs voix. « Muses et Charités, filles de Jupiter, dit Théognis, vous qui, venues jadis aux noces de Cadmus, avez chanté de beaux vers. » Ce rôle des Muses dans les mariages nous explique pourquoi Hyménæos est appelé tour à tour fils de Calliope, ou de Terpsichore, ou d'Uranie. Là est peut-être aussi la raison de l'association du culte des Muses avec celui d'Éros dans le pays de Thespies. « Éros, dit Plutarque, est le compagnon des Muses, des Charites et d'Aphrodite.* » Une représentation des mystères nous montre Vénus et Adonis accompagnés d'Éros et des neuf Muses.* « Prions les dieux, disait Plutarque, que les Muses assistent Aphrodite ; ce sont elles qui doivent introduire l'harmonie dans le mariage et dans la famille.* » Ces divinités prennent aussi part aux douleurs des dieux ou des hommes : elles accompagnent Thétis sur le tombeau d'Achille et y font entendre des lamentations* ; elles gémissent sur Adonis ; Calliope pleure Alexandre.* Fidèle image de la vie hellénique, où la poésie et la musique venaient au foyer domestique s'asseoir à la table des festins, chanter dans les mariages, pleurer aux funérailles, compagnes inséparables des joies et des douleurs de l'homme.
+
+*) Publiée par Gerhard, _Arch. Zeitung_, 1850, pl. 23-24.
+
+*) Pausan. 9, 12, 3.
+
+*) Théog. 15-16 ; cf. Pind. _Pyth._ 3, 159-160 ; Diodor. 5, 49.
+
+*) Plutarch. _Amat._ p. 758, c.
+
+*) Gerhard. _Mysterienbilder._ pl. 6.
+
+*) Plutarch. _Moral._ 1, p. 138, c.
+
+*) _Odyss._ 24, 60. Cf. Pind. _Isthm._ 8, 126. Philostr. _Vit. Apoll._ 4, 16, 4 ; _Heroïc._ 20, 19.
+
+*) _Anthol._ Jacobs, tom. 2, Append. n° 251.
+
+# Chapitre 4. --- Culte des Muses. --- Jeux et concours musicaux.
+
+Les Muses, déesses du chant à l'origine, ne présidèrent que fort tard aux différents genres littéraires et artistiques. Avant que les attributions propres à chacune d'elles fussent nettement définies, elles formaient un chœur aussi indissoluble que celui des Charites. C'est à ce chœur des Muses que s'adressaient les hommages des Grecs, et le culte ne paraît pas avoir distingué leurs personnes. Avant d'étudier chaque Muse en particulier, il convient donc de rechercher, d'une façon générale, quels furent le développement et la forme de la religion dont ces divinités étaient l'objet.
+
+L'Olympe thessalien, berceau du culte des Muses, conservait encore à l'époque historique des traces de leur religion. L'antique sanctuaire de Libethrion avait sans doute beaucoup perdu de son importance, peut-être même était-il complètement abandonné ; mais les Muses étaient encore honorées avec éclat à Dion en Piérie, et là plus que partout ailleurs devait se conserver la forme primitive de leur culte. Après la victoire de Chéronée, Philippe et Alexandre s'arrêtèrent à Dion pour y sacrifier aux Muses. Les cérémonies religieuses furent accompagnées de fêtes et de représentations théâtrales qui attirèrent une foule considérable ; la panégyrie dura neuf jours en l'honneur des neufs déesses.* Suivant Dion Chrysostome, on célébra alors les jeux Olympiques, d'antique institution, dit-il, en Piérie.* D'après Diodore, ce fut Archélaüs de Macédoine qui établit ces concours en l'honneur de Jupiter et des Muses. A Dion, comme dans l'Hélicon, les fêtes solennelles des Muses étaient donc inséparables de ces joûtes littéraires et musicales qui ont tenu une si grande place dans la vie du peuple grec. En Macédoine, les Muses étaient en outre honorées à Stagire et à Amphipolis.*
+
+*) Diodor. 17, p. 570 c. édit. Wesseling.
+
+*) Dio, _Orat._ 2, 3.
+
+*) Théophr. _Hist. Pl._ 4, 10, 3 ; _Schol. Eurip. Rhes._ 346.
+
+Dans la Grèce propre, le canton de Thespies était le centre de leur culte* ; mais elles avaient en beaucoup d'autres endroits des sanctuaires et des autels. A Athènes, une colline leur était consacrée et portait leur nom* ; sur les bords de l'Ilissus,* elles étaient adorées sous le nom de Muses _Ilissiades_. A l'Académie, on voyait leur autel près de celui d'Hermès* ; leurs statues enfin étaient placées dans le temple de Dionysos Melpomenos.* Les Spartiates avaient les Muses en grande vénération, et leur offraient des sacrifices avant les batailles* : c'est là, dit Terpandre, que fleurit le javelot des jeunes guerriers et la Muse harmonieuse.* Les Spartiates marchaient en effet ordinairement au combat aux sons des flûtes, de la lyre et de la cithare.* L'hiéron des Muses était situé à Sparte près du temple vénéré d'Athénè Chalciœque.* Dans le grand sanctuaire d'Olympie, elles avaient un autel placé près de celui de Dionysos et des Charites, divinités qui leur sont souvent associées.* Nous trouvons également des traces de leur culte à Tégée, à Mégalopolis,* à Trézène,* à Sicyone,* à Delphes,* sur les côtes d'Asie, à Téos* et dans l'île de Théra.* Leur religion fut portée jusque dans la Grande-Grèce par les Pythagoriciens, et s'établit sous leur influence dans les villes de Crotone et de Métaponte.*
+
+*) Outre le sanctuaire de l'Hélicon, dont il va être question, il y avait sur l'agora de Thespies un petit temple des Muses (Pausan. 9, 27 b).
+
+*) Pausan. 1, 25, 8 ; 3, 6, 6. Suivant la tradition, c'était sur cette colline que le poète mythique Musée avait l'habitude de chanter, et c'est là qu'il avait été enseveli. Pausanias n'indique nullement d'ailleurs qu'il y eût là un hiéron ou un autel des Muses.
+
+*) Pausan. 1, 19, 5.
+
+*) Pausan. 1, 30, 2.
+
+*) _Ibid._ 1, 2, 5.
+
+*) Plutarch. _Mor._ p. 221 a, _Apophtheg. Lacon._ Cf. pag. 238 c. _Instit. Lacon._ ; _Vit. Lycurg._ p. 53 d. Plutarque explique ainsi cet usage : le roi des Spartiates sacrifiait aux Muses pour que ses soldats fissent des exploits dignes de souvenirs et de gloire.
+
+*) Plutarch. _Vit. Lycurg._ p. 53 c.
+
+*) Pausan. 3, 17, 5.
+
+*) _Ibid._
+
+*) Pausan. 5, 14, 10.
+
+*) _Ibid._ 8, 47, 2-3.
+
+*) Sur les Muses ardalides de Trézène, voir plus haut, chap. 2.
+
+*) Le culte des Muses repose sur ce fait que les Sicyoniens donnaient à l'une des Muses le nom de Polymathia.
+
+*) Voir plus haut, fin du chap. 1.
+
+*) A Téos, leur culte était associé à celui d'Hermès et d'Héraklés (_Corp. Inscr._ 3059, l. 22-23).
+
+*) _Corp. Inscr._ 2448.
+
+*) Jambl. 45, 50 ; Porphyr. 57.
+
+De tous ces sanctuaires, celui de l'Hélicon efface les autres par sa renommée. Il fut pour la religion des Muses ce que Délos et Delphes furent pour celle d'Apollon. C'était l'endroit vénéré où les déesses parties de l'Olympe s'étaient arrêtées et avaient fixé leur séjour ; là elles avaient inspiré Hésiode ; là leur souffle avait animé toute une race de chanteurs et de poètes. On les croyait toujours présentes près de la source d'Hippocrène, sur les bords d'Aganippe ou du Permesse. La solennité de leurs fêtes, l'éclat des jeux littéraires et musicaux célébrés en leur honneur, attiraient de toutes les parties de la Grèce un nombreux concours et étaient l'objet de merveilleux récits. _Amphion_ de Thespies avait composé un ouvrage en plusieurs livres sur le _Mouséion_ de l'Hélicon* ; _Nicocratès_ avait également écrit un ouvrage intitulé : [GREEK].* A défaut de ces deux traités spéciaux, dont il ne reste aujourd'hui qu'une citation conservée par Athénée,* il nous faut demander à Pausanias, à Plutarque et aux inscriptions, tout ce qu'il est permis de savoir sur cet hiéron célèbre.
+
+*) Athénée (14, p. 629) fait une citation empruntée au second livre de l'ouvrage d'Amphionde Thespies.
+
+*) _Schol. Homer. Iliad._ 13, 21.
+
+*) 14, p. 629 a. Cette citation nous apprend qu'il y avait dans l'Hélicon des danses d'enfants.
+
+« Les plus anciens sanctuaires des dieux, particulièrement ceux des Muses, de Pan, des Nymphes, d'Apollon et de toutes les divinités qui président à la musique, avaient été établis, dit Plutarque, dans les endroits les plus déserts.* » Les Piériens fondateurs d'Ascra avaient en effet ménagé aux Muses, loin du tumulte des villes, une calme retraite : ils leur avaient élevé des autels dans un vallon solitaire de l'Hélicon. Nous avons retrouvé, il y a quelques années, les ruines de ce sanctuaire.* Sans doute, depuis que la religion des Muses a disparu, l'aspect des lieux a bien changé. De l'antique bois sacré qui occupait toute la vallée, il ne reste que quelques chênes-verts qui ombragent des chapelles byzantines, ruinées elles-mêmes comme les édifices qui ont servi à les élever. Depuis Constantin, les groupes de Muses et tous les objets d'art que Pausanias avait admirés ont été enlevés et sont perdus sans retour* : le souvenir du spoliateur est encore attaché à ces ruines, où sa triste divinité ne peut faire oublier celle des nobles déesses.* Mais si l'imagination a quelque peine à rétablir le sanctuaire des Muses dans sa beauté et dans son éclat primitifs, on retrouve encore au sein de la nature, qui n'a point changé, l'impression religieuse des anciens et le recueillement de cette solitude qu'ils avaient donnée aux Muses pour séjour. Si l'ouverture de la vallée laisse entrevoir les champs verdoyants du territoire d'Ascra, si l'œil aime à s'arrêter un instant sur la fine végétation qui couvre les rives élevées du torrent, on est surtout dominé par le spectacle de la montagne aux pentes abruptes, à la masse nue et rocheuse, dont le sommet seul est couronné de noirs sapins. Enfermé dans ce vallon sauvage, on est assez loin de tout bruit humain, assez sensible aux impressions de la nature, pour croire entendre la voix de Pan ou les chants lointains des Muses.
+
+*) Plutarch. _Fragm._ 19, éd. Dübner, coll. Didot. Cf. Plutarch. _De Curios._, p. 521 e.
+
+*) Voir notre _Notice sur les ruines de l'hièron_, Archiv. des Missions, tom. 4, 2me série.
+
+*) Zosime (5, 24) nous apprend que ces statues enlevées par Constantin furent consumées dans un incendie à Constantinople, sous Arcadius.
+
+*) Une des chapelles du vallon des Muses porte le nom de : Hagios Constantinos.
+
+L'hiéron de l'Hélicon fut pendant longtemps une dépendance du territoire d'Ascra, dont on voit non loin de là se dresser l'âpre rocher.* Ce vallon vit naître et grandir la famille des poètes hésiodiques. Mais, après la destruction d'Ascra, tout le canton passa au pouvoir des Thespiens, qui eurent la surveillance du sanctuaire et la direction des fêtes qui s'y célébraient. Déjà, au temps de Corinne, Thespies était renommée par son culte des Muses : « Thespies aux beaux enfants, amie des étrangers, chérie des Muses, » s'écrie la femme poète.* Jusqu'au temps des Constantin, les Thespiens furent maîtres de ce sanctuaire, dont les antiques souvenirs et les trésors artistiques attiraient la curiosité des voyageurs.
+
+*) D'Ascra, il ne reste plus aujourd'hui qu'une tour et quelques pans de mur, comme du temps de Pausanias (9, 29, 1).
+
+*) Corinn. _Fragm._ 23, Bergk. _Lyr. Gr._ 3me édit. p. 815.
+
+Pausanias, qui n'avait pas manqué de le visiter, nous en donne une description, un peu sèche suivant son habitude, suffisante cependant pour nous en faire deviner la beauté. Après s'être arrêté à nous rappeler les traditions mythologiques qui concernent les Muses, la fontaine Aganippe, Euphémè* nourrice des Muses, et Linus, il énumère les statues et les principaux objets d'art qui s'offrent à sa vue sous les ombrages du bois sacré.* Il aperçoit d'abord un groupe de Muses, œuvre de Céphisodote ; un peu plus loin, trois Muses du même artiste ; trois autres, œuvre de Strongylion ; les trois dernières qui complètent le second groupe sont dues au ciseau d'Olympiosthènes. Au même endroit on voyait un des plus beaux travaux de Lysippe : c'était un Apollon d'airain disputant à Hermès la possession de la lyre ; et le chef-d'œuvre de Myron, suivant Pausanias, la célèbre statue de Dionysos enlevée par Sylla aux Minyens d'Orchomène. Plusieurs monuments y rappelaient le souvenir des origines de la poésie et de la musique grecques. C'était une statue de Thamyris aveugle, tenant à la main une lyre brisée ; c'était Arion de Méthymne monté sur un dauphin ; Orphée accompagné de Télétè ; Saccadas d'Argos. Hésiode y était représenté assis, tenant la cithare sur ses genoux.* Le souvenir du grand poète d'Ascra ne s'était point perdu dans l'Hélicon. Une tradition locale qui a bien sa valeur ne reconnaissait comme authentiques, parmi les ouvrages qu'on lui attribue, que les Œuvres et les Jours. Le texte même du poème était conservé dans le sanctuaire : il était gravé sur des tablettes de plomb, assez altérées par le temps, mais où Pausanias put cependant déchiffrer une partie des vers du poète. Sur d'autres tablettes on lisait les autres poèmes mis sous le nom d'Hésiode : les Grandes Éées, la Théogonie, la Mélampodie, la Descente de Thésée et de Pirithoüs aux Enfers,* _etc._ La gloire du poète héliconien était encore rappelée par un trépied qu'il avait, disait-on, consacré aux Muses après sa victoire aux jeux de Chalcis.* Beaucoup d'autres offrandes et objets d'art dont Pausanias ne donne qu'une incomplète énumération faisaient de ce sanctuaire, sinon un des plus riches de la Grèce, du moins un des plus agréables aux regards des visiteurs. Les Muses en effet n'y avaient point de temple proprement dit* : leurs autels et leurs statues étaient dispersés çà et là sous les ombrages, et chaque détour du bois sacré révélait un nouveau trésor.
+
+*) Euphémè a une signification allégorique qui se retrouve dans les noms des chanteurs Phémios et Euphémos. Cf. Lobeck. _Aglaoph._ 1, p. 325.
+
+*) Toute l'analyse qui suit est empruntée aux chapitres 30 et 31 du liv. 9 de Pausanias.
+
+*) Pausanias remarque à ce propos que l'attitude donnée par l'artiste à Hésiode ne répond pas aux vers du poète, qui se représente lui-même tenant un rameau de laurier à la main.
+
+*) Dece passage, M. Preller (_Griech. Myth._ 1, p. 385, not. 1) a conclu qu'il y avait des recueils de textes et de petites bibliothèques attachées aux sanctuaires des Muses. Ce n'est qu'une conjecture ; la conservation des œuvres d'Hésiode dans l'hiéron de l'Hélicon s'explique surtout par le fait qu'Hésiode était d'Ascra.
+
+*) Il est question de ces jeux et du trépied d'or consacré aux Muses par Hésiode, dans les _Œuvres et les Jours_ (v. 654 sqq). C'est alors, suivant une tradition postérieure, qu'aurait eu lieu la lutte poétique entre Homère et Hésiode.
+
+*) C'est ce qu'on est forcé de conclure du silence de Pausanias sur ce point. S'il y avait eu un temple dans le bois sacré, il n'aurait pas manqué d'en parler.
+
+Quelle était la forme du culte des Muses héliconiennes ? Pausanias ne nous donne à ce sujet aucun renseignement ; mais d'autres textes nous permettent d'en deviner quelque chose. Les fêtes solennelles qui se célébraient tous les cinq ans en même temps que les jeux, ne devaient point suffire à la religion des Muses : les prêtres et les serviteurs du culte qui habitaient les environs du bois* étaient sans doute astreints à des sacrifices réguliers en l'honneur des déesses. C'est ainsi qu'à Olympie, dans l'intervalle des grands jeux, on sacrifiait chaque mois sur chacun des autels du sanctuaire.* Les sacrifices se faisaient suivant l'ancien rite, qui s'était probablement conservé aussi dans l'Hélicon : sur l'autel recouvert de branches d'olivier on brûlait de l'encens et des grains de froment pétris de miel ; on y versait ensuite la libation. Cette libation, qui à Olympie se faisait avec le vin en l'honneur des grands dieux, devait dans l'Hélicon se faire avec l'eau ou avec un mélange d'eau et de miel. Les Muses en effet font partie des divinités dont les sacrifices étaient νηφάλια, c'est-à-dire d'où le vin était exclu. « Les Athéniens, dit Polémon, qui conservent fidèlement les usages religieux, font des sacrifices sans libation de vin à Mnémosyne, aux Muses, à l'Aurore, au Soleil, à Sélénè, aux Nymphes, à Aphrodite Ourania.* » Quant aux objets mêmes du sacrifice, il est évident que, pour les Muses comme pour les nymphes, on n'immolait pas d'êtres vivants : de l'encens, du blé, des gâteaux de miel et des fruits, telles étaient les offrandes destinées aux bienveillantes déesses. Parmi les plantes, la rose, le serpolet, le lierre, leur étaient spécialement consacrés. On se rappelle l'épigramme de Théocrite : « Ces roses délicates, cette touffe épaisse de serpolet, sont consacrés aux divinités héliconiennes. » --- « Rose aimable, plante des Muses, dit le poète de Téos.* » --- « Le lierre est une offrande qui convient à Terpsichore et à Bromios, » dit un poète anonyme dont nous avons retrouvé l'épigramme sur un marbre du sanctuaire.* Sur plusieurs représentations figurées, les Muses ont en effet des feuilles de lierre dans les cheveux* ; et les rapports qui unissent ces divinités à Dionysos suffisent d'ailleurs à expliquer cet attribut. Enfin, d'après le Stoïcien Cornutus, les Muses étaient quelquefois couronnées de palmes.* La simplicité de ces consécrations et de ces offrandes convient bien au caractère des Muses, divinités naturellement douces et amies de l'humanité.
+
+*) Pausan. 9, 31, 3 : [GREEK]. On a trouvé près de là l'épitaphe de la fille d'un gardien de l'hiéron des Muses. (V. Ulrichs, _Reis. und Forsch._ 2, p. 95).
+
+*) Pausan. 5, 15, 10.
+
+*) Polem. édit. Preller, p. 74.
+
+*) Théocr. _Epigram._ 1 ; Anacr. _Od._ 51 à la Rose. Cf. un fragment de Sapho, cité par Plutarque (_Moral_, p. 647 a).
+
+*) N° 52 de notre _Recueil d'Inscr. inéd. de Béotie._
+
+*) _Elit. Céram._ 2, pl. 70.
+
+*) Cornutus, _De N. D._ 14, p. 55, explique cet attribut des Muses par un jeu de mots : on couronne les Muses de palmes ([GREEK]), dit-il, parce que les Phéniciens passent pour avoir inventé les lettres.
+
+Au culte héliconien se rattachait un certain nombre d'institutions locales. C'est ainsi qu'une inscription de Thespies nous apprend l'existence d'un _thiase_ ou congrégation religieuse des _Muses hésiodiennes_. Sur un catalogue militaire de même provenance se trouve cité le bataillon ou la _cohorte des Muses_.* De ces institutions, la plus importante était les jeux qui portaient le nom de [GREEK]. Nulle contrée ne fut plus riche que la Béotie en fêtes de ce genre : il suffira de citer les _Charitesia_ d'Orchomène, les _Homoloïa_ de Thèbes, les fêtes d'Apollon Ptoos à Acraephion, les _Basileia_ de Lébadée, les _Eleutheria_ de Platée, pour montrer que dans ce pays, réputé si barbare, la poésie et la musique n'étaient pas seulement goûtées, mais aimées avec passion. Nous n'avons à nous occuper ici que du plus célèbre de ces jeux : celui des Muses.
+
+*) Keil, _Sylloge Inscr. Bœot._ n° 23. Voici le texte de l'inscription restituée : [GREEK]. Les caractères épigraphiques sont d'époque très-ancienne. Ces sociétés religieuses, dont les membres s'appelaient [GREEK], ou [GREEK], ou [GREEK], étaient très-nombreuses dans l'antiquité : plusieurs nous sont connues par les inscriptions. Voir K. Fr. Hermann, _Lehrbuch d. griech. Antiq._ tom. 2, § 7, 6 ; 29 ; 17. Voir surtout, sur ce sujet, une intéressante étude de M. Foucart dans la _Revue Archéologique_, 1864, p. 210-215, et un mémoire du même auteur lu à l'Académie des Inscriptions (_Comptes-Rendus_ 1866, p. 589).
+
+*) Ranghabé _Ant. Hell._ n° 705 : [GREEK].
+
+« Tous les cinq ans, dit Plutarque, les Thespiens célèbrent un concours en l'honneur d'Éros, de même qu'ils en célèbrent un en l'honneur des Muses, avec beaucoup de magnificence et d'éclat.* » Bien qu'Éros soit en relation mythologique avec les Muses, la même fête n'était point commune à ces divinités : c'est ce que nous apprennent les premières lignes de l'_Amatorius_ de Plutarque et les catalogues agonistiques, où les _Érotidia_ se trouvent distingués des _Mouséia_. Les premiers de ces jeux étaient en partie athlétiques* ; les seconds étaient uniquement littéraires et musicaux. Quant aux exercices qui composaient ces jeux et à leur importance, nous serions réduits à de pures conjectures, sans le secours des inscriptions qui nous donnent à ce sujet quelques renseignements.
+
+Nous possédons aujourd'hui trois catalogues des vainqueurs aux concours des Muses. Les deux premiers se trouvent dans le _Corpus_* ; nous avons récemment publié le troisième.* Celui-ci est antérieur, par sa date, à la domination romaine, et peut ainsi fournir une comparaison intéressante avec les deux autres, qui se rapportent au temps des empereurs.
+
+*) Plutarch, _Amat._ p. 748 f. --- A l'époque romaine, l'association des Muses et d'Éros se traduit dans l'onomatologie elle-même. _Corp. Inscr._ 1586, l. 7-8 : [GREEK].
+
+*) Pausan. 9, 31, 2 : [GREEK].
+
+*) _Corp. Inscr._ 1585, 1586.
+
+*) N° 26 de notre _Recueil d'Inscr. inéd. de Béotie._
+
+Dans le plus ancien de ces documents,* le catalogue des vainqueurs est précédé des noms des magistrats civils et religieux qui avaient part à l'organisation et à la surveillance des concours : on trouve cités, après l'archonte, l'agonothète ou président des jeux, le prêtre des Muses, le secrétaire, le _pyrphore_. Les vainqueurs couronnés sont énumérés selon l'ordre probable des exercices. Ce sont les suivants : l'auteur du _Prosodion_ ; le joueur de trompette ; le héraut ; le poète épique ; le rhapsode ; le joueur de flûte ; l'aulède ; le cithariste ; le citharède ; l'auteur de drames satyriques ; l'acteur de l'ancienne tragédie ; l'acteur de l'ancienne comédie.
+
+*) Voir le texte à l'Appendice 2, inscription n° 5. 
+Les deux autres catalogues portent la trace de la domination romaine. Les jeux ont le titre pompeux de : [GREEK]. L'agonothète est un Romain ; le prêtre des Muses n'est plus cité. La plupart des exercices énumérés plus haut ont été conservés : il s'en est ajouté d'autres qui témoignent combien le goût littéraire des Grecs s'était gâté par l'adulation. On récompense l'auteur du meilleur panégyrique de l'empereur et l'auteur du meilleur poème en l'honneur de l'empereur : l'éloge des Muses ne vient qu'après celui de César Auguste.* Parmi les vainqueurs dans un genre d'exercices nouveaux, il faut citer encore : les poètes et les acteurs de la tragédie et de la comédie nouvelles, le joueur de flûte pythique, le joueur de flûte cyclique, le [GREEK], et l'auteur du chœur politique.* Les jeux des Muses se sont donc modifiés et altérés avec le temps ; mais le goût des arts est encore vivant dans l'Hélicon, et la renommée de ces fêtes se répand partout. Des poètes et des musiciens viennent des colonies les plus reculées disputer les prix aux artistes de la Grèce propre. Ils sont envoyés par Éphèse, par Nicomédie, par Aspendos de Pamphylie ; par Antioche de Pisidie, par Tripolis.* Le temps n'est pas venu où un empereur mettra terme à ces fêtes en ravageant le sanctuaire des Muses. On accourt encore vers l'Hélicon de tous les points de la Grèce et de l'Asie ; on s'abreuve aux eaux sacrées d'Hippocrène et d'Aganippe ; et les Grecs qui ont tout perdu, sauf l'amour des lettres et des arts, viennent encore auprès des Muses assister à de nobles spectacles et goûter les plus délicats plaisirs de l'esprit.
+
+*) _Corp. Inscr._ 1585,  
+l. 10 : [GREEK]  
+l. 13 : [GREEK].  
+L'[GREEK] est, d'après Bœckh, une composition lyrique qui se distingue par sa forme de la composition en vers épiques ([GREEK]). Il est difficile en effet de considérer ces _encomiographes_ comme des prosateurs.
+
+*) Pour la définition de ces genres littéraires et musicaux, voir le commentaire des n°s 1585-86 du _Corpus._ « [GREEK] quid sit non liquet, » dit Bœckh.
+
+*) _Corp. Inscr._ 1585, l. 21, 25 ; 1586, l. 13, 19, 24, 30, 35.
+
+Les solennités des Muses n'étaient pas accompagnées partout de ces jeux et de ces concours réguliers : les [GREEK] de l'Hélicon nous sont seuls connus. Mais ailleurs les fêtes des déesses servaient d'occasion à des luttes d'un genre différent, à des conversations et des discussions littéraires où prenaient part les hommes les plus distingués, et où aimait à se jouer la subtilité des esprits grecs. Au temps de Plutarque,* les hommes de lettres et les artistes réunis à la même table, aux fêtes des Muses d'Athènes, avaient coutume de se proposer, après boire, la solution d'un certain nombre de questions de littérature et d'érudition. Le neuvième livre des _Propos de table_ reproduit plusieurs de ces discussions. Sans doute quelques-uns des sujets proposés peuvent nous faire sourire aujourd'hui, et l'on s'étonne de voir les amis de Plutarque dépenser tant d'esprit sur des questions si minces. Ce sont conversations raffinées et subtiles ; ce sont propos de rhéteurs, si l'on veut, mais de rhéteurs qui ont encore souci de la dignité des lettres et qui honorent les Muses en faisant assaut d'érudition et de beau langage.
+
+*) _Symp._ 9, Proœm. [GREEK]. _Ibid. Quæst._ 2 : [GREEK].
+
+C'est également à la religion de ces déesses que se rattache la grande institution littéraire et scientifique fondée en Égypte par la munificence des Ptolémées. Le Musée d'Alexandrie, avec son jardin, son _exèdre_, ses vastes et somptueux bâtiments, faisait partie du palais même des rois égyptiens. Là, les membres de cette société, ou plutôt de cette communauté savante, se réunissaient et prenaient leurs repas ensemble ; ils avaient aussi un trésor commun. Un prêtre, nommé d'abord par les Ptolémées, plus tard parles Césars, était attaché à ce noble établissement : il était chargé du culte des Muses, qui avaient leur sanctuaire dans le palais.*
+
+Depuis longtemps déjà les Muses ne présidaient plus seulement à la poésie et à la musique ; elles étaient considérées comme sources de toute instruction et de toute science. Il ne faut donc pas s'étonner de les voir honorées par la jeunesse qui fréquentait les gymnases. D'après une inscription de Chios, les enfants, les éphèbes et les jeunes gens vainqueurs aux jeux avaient fait des libations communes aux Muses et à Héraklès.* A Téos, il y avait un hiéron commun à Hermès, à Héraklès et aux Muses.* Un jeune athlète vainqueur consacrait une statue avec cette inscription : à Héraklès Musagète.* Cette association des Muses et d'Hercule a de quoi étonner, et Plutarque se demande, dans les _Questions romaines_, pourquoi ces divinités avaient un autel commun.* Le type d'Hercule Musagète, qui paraît d'époque récente, se voit sur quelques vases peints* ; il est également représenté sur les monnaies de Leucade et de la _gens Pomponia_. On sait que ce fut Fulvius Nobilior, l'ami d'Ennius, qui plaça à Rome, dans le temple d'Hercule, élevé après la guerre d'Étolie, les statues des Muses enlevées d'Ambracie. Le rhéteur Eumène, qui rapporte le fait,* dit, pour l'expliquer, « que la tranquillité des Muses a besoin de la protection d'Hercule, et que la valeur d'Hercule réclame la voix des Muses. » Ce n'est là qu'une phrase vide. Il faut plutôt chercher l'explication d'Hercule Musagète dans l'éducation hellénique, où les exercices du corps étaient inséparables de ceux de l'esprit. Hercule et les Muses, la gymnastique et la musique, dans son sens le plus général, n'était-ce pas chez les Grecs le fondement de toute éducation ?
+
+*) Strab. 17, 1, 8 : [GREEK].
+
+*) _Corp. Inscr._ 2214.
+
+*) _Ibid._ 3059, l. 22-25. Cf. Pausan. 8, 32, 2 : à Mégalopolis, hiéron commun aux Muses, à Apollon et à Hermès.
+
+*) _Corp. Inscr._ 5987.
+
+*) _Quæst. Rom._ 59.
+
+*) Voir, entre autres, un vase décrit par Gerhard (_Auserlesene Vasenbilder_, pl. 68) : Héraklès _jouant de la cithare_ avec la peau de lion, le carquois, l'épée, mais sans massue, un pied sur la thymélè. En face de lui est Pallas ; à gauche Dionysos ; à droite Poséidon. Cette peinture représente évidemment Hercule à l'état de repos et de fête, après ses victoires.
+
+*) Dans son discours _de Scholis instaurandis_, cap. 7. Cf. Pline, _Hist. Nat._ 35, 36, 4. Voici le texte d'Eumène : « Itemque Fulvius nobilior primus novem signa, hoc est omnium Camænarum, ex Ambracensi oppido translata sub tutela fortissimi numinis consecravit, ut res est, quia mutuis opibus et præmiis juvari ornarique deberent, Musarum quies defensione Herculis et virtus Herculis voce Musarum. »
+
+Quelquefois enfin, en dehors du culte public, les Muses étaient l'objet d'un culte particulier et domestique. C'est ce que nous apprend le curieux _testament d'Epictéta_, publié dans le _Corpus_.* Phœnix, mari d'Epictéta, mort avant elle, avait élevé un _muséion_ en l'honneur de son fils, jeune poète probablement, enlevé par une mort prématurée. Epictéta, restée veuve, continue d'entretenir le _muséion_ et règle dans son testament tous les détails du culte. Elle désigne pour la prêtrise des Muses le fils de sa fille, et après lui successivement l'homme le plus âgé de sa descendance. Les hommes de la famille doivent se réunir au _muséion_ chaque année, dans le mois _delphinien_ : on doit sacrifier le dix-neuvième jour aux Muses, le vingtième et le vingt et unième aux défunts. Les libations en l'honneur des déesses, les couronnes dont il faut orner leurs statues, les plus petits détails du sacrifice, s'y trouvent indiqués. Ce document précieux nous montre le culte des Muses associé à celui des morts et devenu une véritable religion de famille.
+
+*) Tom. 2, n° 2448.
+
+# Chapitre 5. --- Muses étudiées individuellement.
+
 ...
