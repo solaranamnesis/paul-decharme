@@ -945,7 +945,40 @@ Quant aux nombreuses images de ces divinités que nous offrent les bas-reliefs, 
 
 [Un tel a consacré ce monument aux Muses, après avoir été vainqueur] trois fois à la panégyrie des Magnètes dans la ville de Démétrias, quatre fois aux Héracléia de Thèbes, trois fois aux Lividia de Chalcis, trois fois aux Cæsaréa de Tanagre, deux fois à la panégyrie des Thessaliens dans la ville de Larisse, deux fois aux Érotidia.
 
-5° A Thespies. --- Catalogue des vainqueurs aux concours des Muses : [GREEK]. 
+5° A Thespies. --- Catalogue des vainqueurs aux concours des Muses :  
+Ζένωνος ἄρχοντος, ἀγωνοθετοῦντος τὸ  
+δεύτερον Κλεαινέτου τοῦ Δασίου, ἐπὶ ἱεῤέ  
+ως τῶν Μουσῶν Πολυκρατίδους [Ε]ὐφαεινοῦ, ἀ  
+πὸ δὲ τῶν τεχνίτων ·  
+Ἀργείου γραμματεύοντος Ἀμφικλεί[δους  
+τ]οῦ Κλεαινέτου. πυρφοροῦντος Κλ[εαινέ]  
+του τοῦ Δασίου, οἱ νικήσαντες τὰ Μ[ουσεῖα]  
+οἵδε ·  
+ποιητὴς προσοδίου  
+Βάκχιος Βακχίου Ἀθηναῖος ·  
+σαλπισ[τὴς]  
+... Μελανθίου Θετταλὸς ἀπὸ Κιερίου ·  
+κήρυξ  
+Ἡρωΐδης Σωκράτ[ους] Θηβαῖος ·  
+ἔπων ποιητὴς  
+Μήστωρ Μήστορος Φωκαιεύς ·  
+ῥαψῳδὸς  
+Θεόδωρος Πυθίωνος Ἀθηναῖος ·  
+αὐλητὴς  
+Περιγένης [Ἡρα] κλείδου Κυζικῃνός ·  
+αὐλῳδὸς  
+Στράτων Στράτωνος Σιδώνιος ·  
+κιθαριστὴς  
+Ἀπολλόδοτος Δημέου Λύκιος ἀπὸ Ξανθοῦ ·  
+κιθαρῳδὸς  
+Δημήτριος Ἁμαλωΐου Ἀιολεὺς ἀπὸ Μυρίνης ·  
+σατύρων ποιητὴς  
+Ἀράδας Τίμωνος Ἀθηναῖος ·  
+ὑποκριτὴς παλαίας [τραγ]ῳδίας  
+Φιλοκράτης Θεοφανίου Θηβαῖος ·  
+ὑποκριτὴς παλαίας κωμ[ῳδίας]  
+[Εὔ]αρχος Ἡροδότου Κορω[νεύς]
+
 « Sous l'archontat de Zénon, Cleænetos, fils de Dasios, présidant les jeux pour la seconde fois, Polycratidès, fils d'Euphaeinos, exerçant la prêtrise des Muses et membre de la corporation des artistes ; »
 
 « Argeios, fils d'Amphiclidès, petit-fils de Cleænetos, étant secrétaire, et Cleænetos, fils de Dasios, _pyrphore_, les vainqueurs aux concours des Muses ont été les suivants : »
