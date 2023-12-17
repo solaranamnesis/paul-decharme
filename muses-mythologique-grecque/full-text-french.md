@@ -799,7 +799,9 @@ Mais cette attribution ne fut nullement constante. Quand l'éloquence devint en 
 
 *) _De N. D._ 14, p. 51.
 
-*) _Anth._ Jacobs 9, 505 : [GREEK].
+*) _Anth._ Jacobs 9, 505 :  
+Εἰκόνα τῆς σοφίης ποτιδέρκεο · Καλλιόπης γὰρ  
+εἰκόνα σῇ κραδίη λάμβανε τὴν σοφίην.
 
 # Chapitre 6. --- Fin de la religion des Muses.
 
@@ -807,7 +809,7 @@ Mais cette attribution ne fut nullement constante. Quand l'éloquence devint en 
 
 *) Plutarch. _Amat._ p. 751 e.
 
-*) Chez les mythographes d'époque postérieure, la virginité des Muses n'est pas bien établie : Calliope s'unit avec Apollon, Euterpe avec le fleuve Strymon. Mais la tradition générale reconnaissait les Muses comme vierges. Voir Diodore, p. 148 p : [GREEK]. --- Id. p. 150 c. : [GREEK].
+*) Chez les mythographes d'époque postérieure, la virginité des Muses n'est pas bien établie : Calliope s'unit avec Apollon, Euterpe avec le fleuve Strymon. Mais la tradition générale reconnaissait les Muses comme vierges. Voir Diodore, p. 148 p : τὰς Μούσας Διονύσῳ συναποδημεῖν, παρθένους οὔσας. --- Id. p. 150 c. : παρθένους τε αὐτὰς οἱ πλεῖστοι γεγονέναι μυθολογοῦσι.
 
 Plutarque, si attaché aux antiques croyances, tombe lui-même dans l'impiété qu'il reproche aux autres, quand il essaye d'expliquer le nombre des Muses. Les anciens, dit-il, remarquèrent de bonne heure que les sciences pouvaient se diviser en trois genres : la philosophie, la rhétorique, les mathématiques. Ils considérèrent ces trois genres comme les dons de trois divinités, auxquelles ils donnèrent le nom de Muses. Plus tard, au temps d'Hésiode, quand les sciences eurent acquis un plus grand développement, on en vint à distinguer trois divisions dans chacun de ces genres. Les mathématiques, en effet, comprennent la musique, l'arithmétique, la géométrie ; la philosophie comprend la logique, la morale, l'étude de la nature ; l'art oratoire se compose du panégyrique, du genre délibératif, du genre judiciaire. C'est ainsi qu'on assigna aux Muses le nombre neuf.*
 
@@ -817,11 +819,11 @@ Chaque école philosophique interprète les Muses suivant son système. Les Pyth
 
 *) _Idem._, ibid.
 
-*) Jambl. _Vit. Pyth._ 45 : [GREEK]. Cf. Porph. _Vit. Pyth._ 31.
+*) Jambl. _Vit. Pyth._ 45 : αὐτῶν (τῶν Μουσῶν) τὴν δύναμιν οὐ περὶ τὰ κάλλιστα θεωρήματα μόνον ἀνήκειν ἀλλὰ καὶ περὶ τὴν συμφωνίαν καὶ ἁρμονίαν τῶν ὄντων. Cf. Porph. _Vit. Pyth._ 31.
 
 *) Plutarch. _Symp._ p. 745 c. Cf. Cornut. cap. 17, p. 49. Cette idée de l'union des Muses avec les sphères célestes se trouve reproduite chez les Platoniciens de la Renaissance (Mars. Ficin. _De Immort. Anim. sive. de Theol. Platon._ 4, cap. 1, p. 131).
 
-*) Maxim. Tyr. _Dissert_, 16, p. 189, éd. Davis : [GREEK].
+*) Maxim. Tyr. _Dissert_, 16, p. 189, éd. Davis : ἡ δ᾽ ἐῤῥωμένη ψυχὴ ... μνήμην ἐγείρει ἐκείνων τῶν θεαμάτων καὶ ἐκείνων τῶν ἀκουσμάτων. Τοῦτο ἄρα καὶ οἱ ποιηταὶ τὴν Μνημοσύνην αἰνίττονται Μουσῶν μητέρα, Μούσας μὲν τὰς ἐπιστήμας ὀνομάζοντες ... ὑπὸ Μνημοτύνης καὶ γεννωμένας καὶ συνταττομένας.
 
 *) C'est l'interprétation que donnait déjà Anaximènes de Lampsaque, un des historiens qui accompagnèrent Alexandre. Elle se trouve développée chez Fulgence (_Mythol._ 1, 14) : « Huic etiam Apollini novem deputant Musas ipsumque decimum Musis adjiciunt ; illa videlicet causa, quod _humanæ vocis decem sint modulamina_ ... Fit ergo vox quatuor dentibus econtra positis, quos lingua percutit : e quibus si unus minus fuerit, sibilum potius quam vocem reddat necesse est. Duo labia, velut cymbala, verborum commoda modulantia : lingua est plectrurn quæ curvamine quodam vocalem format spiritum : palatum, cujus concavitas profert sonum ; gutturis fistula quæ tereti meatum spiritalem præbet excursu ; et pulmo, qui velut aerius follis concepta reddit ac revocat. --- Habes ergo Musarum novem vel Apollinis ipsius redditam rationem, sicut in libris suis Anaximander ? (_Anaximenes_, d'après la correction de M. Rossignol, _Rev. de Philol._ 2) Lampsacenus et Zenophanes Heracleopolites exponunt. »
 
@@ -849,7 +851,7 @@ Un artiste du même temps, Praxias l'Athénien, disciple de Calamis, avait sculp
 
 *) Athén. 4, 182 f. ; 14, 635 b. éd. Is. Casaub.
 
-Quel était le caractère des œuvres que nous venons de citer ? Les deux statues archaïques du musée de Venise permettent de répondre à la question.* Par leur type comme par leur exécution, elles appartiennent à un temps où la forme artistique ne dominait pas encore complètement la forme hiératique. Dans la figure, les coins des yeux et de la bouche ne sont pas sans doute relevés, comme sur les statues d'Égine ; mais la rudesse des traits fortement accusés, annonce une époque où l'art n'avait pas encore acquis toute sa souplesse. Les draperies, largement dessinées, sont d'une grande raideur. D'ailleurs, les pieds joints et le parallélisme de la pose des bras semblent indiquer que ces sculptures avaient une destination architectonique : ces Muses furent probablement des Caryatides. Elles portent toutes deux la coiffure grecque ancienne. Les cheveux ondulés, retombant sur la nuque, sont retenus par l'_ampyx_, genre de coiffure qui doit caractériser les Muses primitives, si l'on songe à l'épithète de [GREEK], qui leur est appliquée par Hésiode et par Pindare. Trois torsades de cheveux descendent de chaque côté sur la poitrine, suivant l'usage des sculptures les plus anciennes. Quan taux vêtements, elles portent le long _chiton_ ionien, formant sur l'avant-bras des demi-manches larges, à boutons et à lacets ; et, par-dessus le _chiton_, le _péplos_. Aux pieds elles ont les sandales, la chaussure tyrrhénienne dorée, désignée par Euripide comme la chaussure des Muses.*
+Quel était le caractère des œuvres que nous venons de citer ? Les deux statues archaïques du musée de Venise permettent de répondre à la question.* Par leur type comme par leur exécution, elles appartiennent à un temps où la forme artistique ne dominait pas encore complètement la forme hiératique. Dans la figure, les coins des yeux et de la bouche ne sont pas sans doute relevés, comme sur les statues d'Égine ; mais la rudesse des traits fortement accusés, annonce une époque où l'art n'avait pas encore acquis toute sa souplesse. Les draperies, largement dessinées, sont d'une grande raideur. D'ailleurs, les pieds joints et le parallélisme de la pose des bras semblent indiquer que ces sculptures avaient une destination architectonique : ces Muses furent probablement des Caryatides. Elles portent toutes deux la coiffure grecque ancienne. Les cheveux ondulés, retombant sur la nuque, sont retenus par l'_ampyx_, genre de coiffure qui doit caractériser les Muses primitives, si l'on songe à l'épithète de χρυσάμπυκες, qui leur est appliquée par Hésiode et par Pindare. Trois torsades de cheveux descendent de chaque côté sur la poitrine, suivant l'usage des sculptures les plus anciennes. Quan taux vêtements, elles portent le long _chiton_ ionien, formant sur l'avant-bras des demi-manches larges, à boutons et à lacets ; et, par-dessus le _chiton_, le _péplos_. Aux pieds elles ont les sandales, la chaussure tyrrhénienne dorée, désignée par Euripide comme la chaussure des Muses.*
 
 *) V. O. Müll. _Denkm. d. alt. K._ 2, n° 730-731. Ces statues ont déjà été décrites par Guédéonoff (_Ann. Inst. Arch._ 1852).
 
@@ -881,7 +883,7 @@ Parmi les groupes qui nous ont été conservés, un des plus remarquables est ce
 
 *) Pour l'énumération des statues et images des Muses qui nous sont parvenues, voir O. Müller, _Manuel d'archéologie_, § 393, 2. La description et la reproduction de ces monuments se trouvent dans les _Denkmäler der allen Kunst_, du même auteur, ouvrage revu et complété par Fr. Wieseler (2me part., p. 27-33 ; planches, n° 730-750). Voir aussi Clarac, _Statues antiques de l'Europe_, pl. 497-538.
 
-Clio y est représentée assise, tenant de la main gauche un manuscrit qu'elle déroule. Elle porte la tunique à demimanches étroites, qu'on nommait [GREEK], et les chaussures dites _alutæ_, attribuées ordinairement aux personnages de théâtre. La tête n'appartient pas à la statue.
+Clio y est représentée assise, tenant de la main gauche un manuscrit qu'elle déroule. Elle porte la tunique à demimanches étroites, qu'on nommait μασχαλωτὸς χιτών, et les chaussures dites _alutæ_, attribuées ordinairement aux personnages de théâtre. La tête n'appartient pas à la statue.
 
 Euterpe se tient appuyée, presque debout, contre un rocher. La flûte qu'elle tient de la main gauche est moderne. Sa tunique est finement plissée, avec une gemme à l'ourlet supérieur, au milieu du sein. La grâce anime sa physionomie.
 
@@ -915,17 +917,31 @@ Quant aux nombreuses images de ces divinités que nous offrent les bas-reliefs, 
 
 *) Pour le commentaire de ces inscriptions, voir notre _Recueil d'inscriptions inédites de Béotie_, p. 40-44 ; 51-57 (Paris, Imprimerie Impériale, 1868 ; chez E. Thorin, libraire-éditeur, rue de Médicis, 7).
 
-1° Sur la base d'une statue de Polymnie, au milieu des ruines de l'hiéron des Muses de l'Hélicon : [GREEK].
+1° Sur la base d'une statue de Polymnie, au milieu des ruines de l'hiéron des Muses de l'Hélicon :  
+Ἡ Ζηνὸς Διὶ τόνδε Πολύμνια νέκταρος [ἀ]τμὸν  
+Πέμπω, τὴν ὁσίην πατρὶ τίνουσα χάριν.
 
 « Fille de Jupiter, Polymnie, j'envoie à Jupiter ce parfum de nectar, pour m'acquitter envers mon père de mon devoir sacré. »
 
-2° Au même endroit, sur la base d'une statue de Terpsichore : [GREEK].
+2° Au même endroit, sur la base d'une statue de Terpsichore :  
+[Κ]ισσὸς Τερψιχόρῃ Βρομίῳ δὲ πρε[πῶδες ἄγαλμα ? ],  
+Τῇ μὲν ἵν᾿ ἔνθεος ᾖ, τῷ δ᾽ ἵνα τερπν[ὰ φέρῃ ? ].
 
 « Le lierre est un ornement qui convient et à Terpsichore et à Bromios ; à l'une pour qu'elle soit inspirée, à l'autre (pour qu'une douce joie l'anime ? ). »
 
-3° Consécration aux Muses d'une statue d'Auguste : [GREEK].
+3° Consécration aux Muses d'une statue d'Auguste :  
+[Ὁ] δῆμος Θεσ[πι]-  
+-έων αὐτοκράτορα  
+Καίσαρα θεοῦ υἱὸν τὸν  
+σωτῆρα καὶ εὐεργέτην  
+Μούσαις.
 
-4° Monument consacré par un artiste vainqueur dans différents jeux de la Grèce (la première partie de l'inscription manque) : [GREEK].
+4° Monument consacré par un artiste vainqueur dans différents jeux de la Grèce (la première partie de l'inscription manque) :  
+κοινὸν Μαγνήτων ἐν Δημητριάδι  
+τρὶς, Ἡράκλεια ἐν Θηβαῖς τετράκις, ἐν Χαλ-  
+κίδι Λειβίδηα τρὶς, Καισάρηα ἐν Τανάγρᾳ τρὶς,  
+κοινὸν Θεσσαλῶν ἐν Λαρείσῃ δὶς, Ἑρωτί-  
+δηα τρίς.
 
 [Un tel a consacré ce monument aux Muses, après avoir été vainqueur] trois fois à la panégyrie des Magnètes dans la ville de Démétrias, quatre fois aux Héracléia de Thèbes, trois fois aux Lividia de Chalcis, trois fois aux Cæsaréa de Tanagre, deux fois à la panégyrie des Thessaliens dans la ville de Larisse, deux fois aux Érotidia.
 
