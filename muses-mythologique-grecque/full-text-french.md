@@ -10,6 +10,28 @@
 
 ---
 
+# [Introduction.]()
+
+# [Chapitre Premier. --- Les Muses dans Homère et la Théogonie.]()
+
+# [Chapitre 2. --- Les Muses divinités des eaux.]()
+
+# [Chapitre 3. --- Les Muses et l'inspiration prophétique et poétique.]()
+
+# [Chapitre 4. --- Culte des Muses. --- Jeux et concours musicaux.]()
+
+# [Chapitre 5. --- Muses étudiées individuellement.]()
+
+# [Chapitre 6. --- Fin de la religion des Muses.]()
+
+# [Appendice.]()
+
+## [1. Statues et représentations des Muses.]()
+
+## [2. Quelques inscriptions relatives aux Muses.]()
+
+---
+
 A M. Egger, Membre de l'Institut, Professeur à la Faculté des Lettres de Paris.
 
 _Hommage de respectueuse reconnaissance._
