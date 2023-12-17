@@ -394,7 +394,7 @@ Apollon est généralement considéré comme le dieu _Musagète_, c'est-à-dire 
 
 A la même époque, l'inspiration des aèdes qui chantaient en s'accompagnant de la lyre provient à la fois des Muses et d'Apollon. « Démodocos, dit Ulysse, je t'honore au-dessus de tous les mortels ; ou c'est la Muse, fille de Jupiter, qui t'a enseigné, ou c'est Apollon.* » Les aèdes semblent cependant tenir surtout des Muses le don divin de l'inspiration ; ils sont avec elles en communication plus familière et plus intime. « La Muse elle-même leur a enseigné leur art, et elle chérit la tribu des aèdes divins.* » Au huitième chant de l'Odyssée, Démodocos arrive conduit par le héraut. « La Muse l'a aimé plus que tous les autres mortels ; elle lui a donné le bien et le mal ; elle l'a privé de la vue, mais elle l'a doué des doux chants.* » Cette cécité envoyée par les divinités à Démodocos comme le prix du don poétique, est attribuée à plusieurs autres chanteurs et à Homère lui-même. Les Grecs avaient exprimé par cette image la clairvoyance de l'esprit dominé par l'inspiration. Recueilli, concentré en lui-même, tout entier à ses visions, le poète avait les yeux fermés aux choses du monde, mais il était doué de la vue intérieure : l'obscurité où vivait son corps favorisait les clartés de son intelligence.
 
-*) _Odyss._ 8, 486,
+*) _Odyss._ 8, 486.
 
 *) _Ibid._ v. 482.
 
