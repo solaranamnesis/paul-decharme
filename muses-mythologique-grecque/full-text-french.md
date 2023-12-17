@@ -62,9 +62,9 @@ Si, après toutes ces savantes études, il nous a été donné de trouver encore
 
 Il ne faut pas demander à l'étymologie le sens primitif des Muses. Le nom de ces divinités a été l'objet d'explications nombreuses et très-différentes* ; mais aucune n'a un tel caractère de certitude qu'on puisse l'adopter en toute sécurité et en tirer de rigoureuses conclusions. Nous devrons donc commencer par faire l'histoire de la religion des Muses, depuis les plus anciens monuments authentiques de la poésie grecque où il en est fait mention, jusqu'à l'époque où leur culte est fixé. Nous rechercherons ensuite, d'après les indices de tout genre que nous fournirons la topographie, les textes, les monuments, quel a été le caractère primitif et naturaliste de cette croyance.
 
-*) G. Curtius (_Grundzüge der Griech. Etym._, pag. 280) le rattache au radical sanscrit _man_, en grec [GREEK] ou [GREEK], d'où [GREEK], [GREEK], _etc._ D'après la forme dorienne [GREEK] la forme éolienne [GREEK] viendrait de [GREEK]. Lottner (_Zeitschr._ 6, 109 sqq.) considère ce mot comme équivalent à [GREEK]. Suivant Th. Bergk (_Lyr. Gr. ad. Pind. Olymp._ 1, v. 15), le nom des Muses vient du mot Lydien [GREEK] (_Hésych._ [GREEK] ; lisez [GREEK]) ou [GREEK] (_Hés._ [GREEK]). --- M. Egger incline à le faire dériver de [GREEK] ([GREEK], fém. [GREEK]) ; M. Maury (_Relig. de la Grèce_, 2. 476) de [GREEK], avec le sens d'agitation et de transport prophétique.   Mentionnons les étymologies antiques : celle de Platon dans le _Cratyle_, pag. 406, a : [GREEK] ; celle de Cornutus (_De Nat. D._ 14, pag. 43) : [GREEK] ; celle de Diodore (4. pag. 150, c.) : [GREEK] et la singulière explication de Plutarque (_Moral._ 1, 582, 51) qui fait dériver [GREEK] de [GREEK]. --- L'explication du stoïcien Cornutus est reproduite par Suidas, v° [GREEK].
+*) G. Curtius (_Grundzüge der Griech. Etym._, pag. 280) le rattache au radical sanscrit _man_, en grec μεν ou μαν, d'où μέν-ος, μαν-ία, μέ μον α, _etc._ D'après la forme dorienne Μῶσα la forme éolienne Μοῖσα, Μοῦσα viendrait de Μονσα = Μοντια. Lottner (_Zeitschr._ 6, 109 sqq.) considère ce mot comme équivalent à μάντι-ς ( = μαντι-α). Suivant Th. Bergk (_Lyr. Gr. ad. Pind. Olymp._ 1, v. 15), le nom des Muses vient du mot Lydien μωΰς (_Hésych._ μωῢ, ἡ γῆ, Λυδοί ; lisez πηγή) ou μῶῡ (_Hés._ μῶῡ · τὸ ὕδωρ). --- M. Egger incline à le faire dériver de μῦθος (μοῦθος, fém. μου-θ-α ou μου-σ-α) ; M. Maury (_Relig. de la Grèce_, 2. 476) de μάω, avec le sens d'agitation et de transport prophétique.   Mentionnons les étymologies antiques : celle de Platon dans le _Cratyle_, pag. 406, a : τὰς Μούσας τε καὶ ὅλως τὴν μουσικὴν ἀπὸ τοῦ μῶσθαι ; celle de Cornutus (_De Nat. D._ 14, pag. 43) : ἀπὸ τῆς μώσεως, τουτέστι ζητήσεως ; celle de Diodore (4. pag. 150, c.) : ἀπὸ τοῦ μυεῖν τοὺς ἀνθρώπους et la singulière explication de Plutarque (_Moral._ 1, 582, 51) qui fait dériver Μοῦσαι de ὅμου οὖσαι. --- L'explication du stoïcien Cornutus est reproduite par Suidas, v° Μοῦσα · ἡ γνῶσις ἀπὸ τοῦ μῶ, τὸ ζητῶ.
 
-C'est en Thrace, c'est-à-dire en Thessalie et en Piérie, dans les cantons voisins de l'Olympe, que s'est établie d'abord la religion des Muses. Les poètes primitifs, les aèdes, dont la tradition a perpétué le souvenir sous les noms fictifs d'Orphée, de Linus et de Musée, sont souvent désignés comme serviteurs des Muses, [GREEK]. On les considérait aussi comme fils des Muses et d'Apollon.* Ces témoignages nous permettent de supposer qu'à l'origine la poésie grecque fut intimement unie à la religion, et que les plus anciens hymnes furent composés par les serviteurs des dieux. Les premiers prêtres des Muses furent donc en même temps des poètes qui chantèrent les nobles déesses. Ces hymnes primitifs, dont on ne saurait trop déplorer la perte, s'étaient sans doute conservés dans quelques familles sacerdotales ; ils avaient été apportés par les Thraces sur l'Hélicon,* où Hésiode avait pu les entendre. On aimerait à croire que plusieurs des cantiques chantés dans le sanctuaire de Delphes en l'honneur d'Apollon et des Muses avaient cette lointaine origine. Mais aucun texte ne nous permet de deviner le caractère de ces premiers chants, qui sans doute se perdirent d'assez bonne heure, de même que le sanctuaire primitif des Muses dans l'Olympe, celui de Libethrion,* n'existait plus qu'à l'état de souvenir à l'époque historique.
+C'est en Thrace, c'est-à-dire en Thessalie et en Piérie, dans les cantons voisins de l'Olympe, que s'est établie d'abord la religion des Muses. Les poètes primitifs, les aèdes, dont la tradition a perpétué le souvenir sous les noms fictifs d'Orphée, de Linus et de Musée, sont souvent désignés comme serviteurs des Muses, Μουσάων θεράποντες. On les considérait aussi comme fils des Muses et d'Apollon.* Ces témoignages nous permettent de supposer qu'à l'origine la poésie grecque fut intimement unie à la religion, et que les plus anciens hymnes furent composés par les serviteurs des dieux. Les premiers prêtres des Muses furent donc en même temps des poètes qui chantèrent les nobles déesses. Ces hymnes primitifs, dont on ne saurait trop déplorer la perte, s'étaient sans doute conservés dans quelques familles sacerdotales ; ils avaient été apportés par les Thraces sur l'Hélicon,* où Hésiode avait pu les entendre. On aimerait à croire que plusieurs des cantiques chantés dans le sanctuaire de Delphes en l'honneur d'Apollon et des Muses avaient cette lointaine origine. Mais aucun texte ne nous permet de deviner le caractère de ces premiers chants, qui sans doute se perdirent d'assez bonne heure, de même que le sanctuaire primitif des Muses dans l'Olympe, celui de Libethrion,* n'existait plus qu'à l'état de souvenir à l'époque historique.
 
 *) Calliope était la mère d'Orphée (V. Schol. _Apoll. Rhod._ 1, 23 ; _Hymn. Orph._ aux Muses, v. 10 ; Apollod. 1, 3, 2 ; Maxim. Tyr. _Dissert._ 37, pag. 439, éd. Davis). De même Ialemos et Hymenaeos étaient fils d'Apollon et de Calliope (_Schol. Pind. Pyth._, 4, 313).
 
@@ -76,7 +76,7 @@ C'est sur les sommets de l'Olympe* qu'Homère place le séjour des Muses. Mais d
 
 *) _Iliad._ 2, 484 ; 11, 218.
 
-*) _Iliad._ 2, 594, sqq. Hésiode (ap. _Steph. Byz._ v° [GREEK]) plaçait le théâtre de cette légende dans la plaine de Dotis. Sur le même sujet, voir : _Cycl. Fragm._, ap. Pausan, 4, 34, 7 ; Strab. 8, 3 ; _Mythogr. Gr._, éd. Westermann, pag. 127-128.
+*) _Iliad._ 2, 594, sqq. Hésiode (ap. _Steph. Byz._ v° Δώτιον) plaçait le théâtre de cette légende dans la plaine de Dotis. Sur le même sujet, voir : _Cycl. Fragm._, ap. Pausan, 4, 34, 7 ; Strab. 8, 3 ; _Mythogr. Gr._, éd. Westermann, pag. 127-128.
 
 Les poèmes homériques ne nous donnent que peu de renseignements sur les Muses. Habitantes de l'Olympe, pendant les festins des immortels elles chantent en alternant de leur belle voix, tandis qu'Apollon tient la lyre* ; leurs accents charment les loisirs fortunés de la vie divine. Mais quand le poète les invoque, il semble surtout les considérer comme des divinités de la mémoire. An début du Catalogue, il les appelle à son secours pour savoir les noms de tous les chefs des Grecs ; à la fin du Catalogue, il les prie de lui rappeler quel était le plus vaillant de tous ces héros. Au 11e chant de l'_Iliade_, au milieu du récit de la bataille, comme si le souvenir venait tout à coup à lui manquer, il s'adresse aux Muses pour en apprendre quel fut le guerrier qui s'avança le premier contre Agamemnon.* Instruites de tous les détails des événements passés, les Muses suppléent pour le poète aux défaillances de la tradition, à l'impuissance de la mémoire humaine. Filles de Zeus, les Muses participent à l'ubiquité et à l'omniscience du père des dieux : « Vous êtes déesses, s'écrie le poète, vous êtes présentes à tout, vous savez tout ; tandis que nous, nous n'entendons que la renommée et nous ignorons les choses mêmes.* » C'est à cette science universelle que se borne dans Homère le caractère des Muses. Elles ne sont pas encore des personnes douées d'attributs distincts ; elles composent un chœur illimité et indéterminé. Leur généalogie n'est pas créée* ; leur nombre ne paraît pas fixé.*
 
@@ -110,7 +110,7 @@ La triade des Muses se rencontra sur le sol de la Béotie avec la triade des Cha
 
 *) V. O. Müller, _Orchom._, pag. 177 et suiv.
 
-*) Hymn. hom. _à Artémis_, v. 15-20. Cf. _Théogon._ 64 : [GREEK] ... Pindare invoque quelquefois les Charites à la place des Muses (_Nem._ 10, 1).
+*) Hymn. hom. _à Artémis_, v. 15-20. Cf. _Théogon._ 64 : πὰρ δ᾽ αὐτῇς Χάριτες ... Pindare invoque quelquefois les Charites à la place des Muses (_Nem._ 10, 1).
 
 *) Pind. _Olymp._ 14, 9-10.
 
@@ -118,7 +118,7 @@ La triade des Muses se rencontra sur le sol de la Béotie avec la triade des Cha
 
 *) Ausone (_Idyll._ 11, 30) voit dans ces Charites les trois Muses antiques.
 
-*) Il donne à Euphrosyna l'épithète de [GREEK], à Thalia celle de [GREEK] (_Olymp._ 14, v. 12, 14).
+*) Il donne à Euphrosyna l'épithète de φιλησίμολπος, à Thalia celle de ερασίμολπος (_Olymp._ 14, v. 12, 14).
 
 Le nombre neuf, généralement assigné aux Muses, s'explique par l'union intime de ces divinités avec Apollon. Il se rattache à un des principaux mythes de la religion apollinaire : la victoire du dieu sur le serpent Python. Suivant la tradition la plus répandue, Apollon, souillé du sang du dragon, avait été obligé de s'enfuir en Thessalie et d'y subir une longue expiation.* Il n'était revenu à Delphes qu'après une période de huit années entièrement révolues, ou une _ennéaétèris_.* Le culte delphique, qui représentait le combat du dieu, sa victoire, sa fuite, sa purification, rappelait en même temps sa longue absence par l'intervalle qui séparait ses fêtes. Les solennités pythiques ne se célébraient primitivement que tous les neuf ans.* L'usage des _Ennéaétèrides_ était également en vigueur à Thèbes pour les fêtes en l'honneur d'Apollon Isménien.* Les fêtes _Carnéennes_ de Sparte, par leur durée et par plusieurs de leurs détails, rappelaient la consécration du nombre neuf au dieu.* Enfin, les Corybantes, fils d'Apollon, étaient neuf.* Le même nombre symbolique devait s'imposer au chœur des Muses, dont Apollon était considéré comme chef.*
 
@@ -132,7 +132,7 @@ Le nombre neuf, généralement assigné aux Muses, s'explique par l'union intime
 
 *) Ces fêtes duraient neuf jours ; on dressait autour de la ville des tentes de feuillage au nombre de neuf, _etc._ (Athen. 4, 19).
 
-*) Phérécydès de Syros, ap. _Strab._ 10, 472 : [GREEK]. D'après une tradition postérieure (Apollod. 1, 3, 4) les Corybantes étaient nés de Thalie et d'Apollon. On connaît les rapports de Corybas, divinité solaire, avec Apollon (Maury, _Relig. de la Grèce._, 1, 199).
+*) Phérécydès de Syros, ap. _Strab._ 10, 472 : Φερεκύδης δ᾽ ἐξ Ἀπόλλωνος καὶ Ῥυτίας Κορύβαντας ἐννέα. D'après une tradition postérieure (Apollod. 1, 3, 4) les Corybantes étaient nés de Thalie et d'Apollon. On connaît les rapports de Corybas, divinité solaire, avec Apollon (Maury, _Relig. de la Grèce._, 1, 199).
 
 *) Varron (ap. August. _De Doct. Christ._ 2, 17) racontait une anecdote inventée par les Grecs pour expliquer le nombre neuf des Muses. Les habitants d'une cité, voulant consacrer dans le temple d'Apollon les statues des trois Muses, avaient mis ces statues au concours entre trois artistes. Les groupes une fois achevés se trouvèrent être d'une égale beauté. La ville, ne sachant à qui donner la préférence, se décida à acheter les neuf statues et à en orner son sanctuaire d'Apollon. De là vint l'habitude de représenter les Muses au nombre de neuf.
 
@@ -152,9 +152,9 @@ Suivant la Théogonie, elles sont nées en Piérie de l'union de Zeus et de Mné
 
 *) Théog. 135; cf. Apollod. 1, 1, 3.
 
-*) _Théog._ 54 : [GREEK].
+*) _Théog._ 54 : Μνημοσύνη γουνοῖσιν Ἐλευθῆρος μεδέουσα.
 
-*) Porphyr. _Vit. Pyth._ 31 ; Cornut. _De N. D._ c. 17. p. 94 : [GREEK]. Voir l'hymne orphique à Mnémosyne. Cf. Lobeck, _Aglaoph._, p. 731 sqq.
+*) Porphyr. _Vit. Pyth._ 31 ; Cornut. _De N. D._ c. 17. p. 94 : Μνημοσύνη ἠ τοῦ συναναφέρειν τὰ γεγονότα αἰτία. Voir l'hymne orphique à Mnémosyne. Cf. Lobeck, _Aglaoph._, p. 731 sqq.
 
 La généalogie donnée par Hésiode aux Muses, filles de Jupiter et de Mnémosyne, fut celle qui prévalut dans l'antiquité grecque. Il y avait cependant d'autres traditions sur leur naissance. La légende qui leur donne Piéros pour père* indique la provenance de leur culte. Mimnerme,* Alcman* et quelques autres poètes, outre les Muses nouvelles, filles de Jupiter, reconnaissaient des Muses plus anciennes, filles d'Ouranos et de la Terre.* Dans cette généalogie, inventée et accréditée par des poètes, il ne faut voir qu'un effort pour exprimer la puissance souveraine des Muses, aussi anciennes que le monde, antérieures même à la royauté nouvelle de Jupiter. Les traditions qui leur donnent pour mère Clymène, nymphe Océanide, ou Antiope,* ou les nymphes _Plusia_* et _Néda_,* ne paraissent être que des fantaisies de mythographes. Quand Euripide dit que la blonde Harmonia enfanta les neuf Muses chez les Athéniens,* il n'a d'autre intention que de flatter son public. Malgré ces dissidences mythologiques au sujet de la mère des Muses, on peut dire que la croyance des Grecs resta généralement fidèle à la généalogie établie dans la Théogonie.
 
@@ -164,7 +164,9 @@ La généalogie donnée par Hésiode aux Muses, filles de Jupiter et de Mnémosy
 
 *) Diodor. 4, p. 150 b. Cf. Mnaséas ap. _Arnob._ 3, 37 ; _Schol. Pind. Nem._ 3, 16.
 
-*) Cette généalogie se retrouve dans une épigramme d'Antipater de Thessalonique (_Anthol. Jacobs._, 9, 26, v. 9-10) : [GREEK].
+*) Cette généalogie se retrouve dans une épigramme d'Antipater de Thessalonique (_Anthol. Jacobs._, 9, 26, v. 9-10) :  
+Ἐννέα μὲν Μούσας μέγας οὐρανός · ἐννέα δ᾽ αὐτὰς  
+Γαῖα τέκεν, θνατοῖς ἄφθιτον εὐφροσύναν.
 
 *) Hygin, _Fab._ 1, p. 11, éd. Scheffer ; Cic _De N. D._, 3, 21, 54.
 
