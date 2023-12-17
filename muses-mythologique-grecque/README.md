@@ -1,6 +1,8 @@
 # Les Muses, Étude de Mythologique Grecque.
 
 [French - Plain Text](full-text-french.md)  
-French - PDF | Biolinum | Atkinson | Cursive | Auriocus | Kerkis | Artemisia | DnD | Custom  
+[French - PDF](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french.pdf) | [Biolinum](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_biolinum.pdf) | [Atkinson](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_atkinson.pdf) | [Cursive](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_cursive.pdf) | [Auriocus](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_aurical.pdf) | [Kerkis](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_kerkis.pdf) | [Custom](https://cdn.solaranamnesis.com/Decharme/muses_decharme_1869_french_custom.pdf)  
 English - Plain Text  
 English - PDF  
+
+Hemp_paper_in_Japan-canna7.jpeg --- CC BY-SA 4.0 Solar Anamnesis; modified attribution タバコはマーダー, CC BY-SA 4.0, via Wikimedia Commons, Gustave Moreau Public Domain.
