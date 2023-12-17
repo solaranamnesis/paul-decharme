@@ -641,4 +641,254 @@ _Clio_, comme l'indique l'étymologie de son nom,* est la Muse qui chante les ex
 
 *) _Pitt. antich. Ercol._ tom. 2, tab. 2.
 
-...
+Une joie calme anime la gracieuse figure d'_Euterpe_.* Plutarque rapporte à cette Muse l'étude des vérités de la nature, qui procure, dit-il, les plaisirs les plus nobles et les plus purs.* Cette explication toute philosophique n'appartient évidemment pas à la croyance commune. Euterpe, comme son nom l'indique, est une de ces divinités joyeuses dont l'imagination des Grecs avait peuplé le monde. La double flûte qu'elle porte est l'instrument du culte dionysiaque : elle semble reconnaître Dionysos plutôt qu'Apollon comme chef du chœur. Quelquefois, en effet, elle personnifie l'art primitif de la Thrace en opposition avec la musique savante qui se développa surtout dans la Grèce propre. Sur un vase peint qui représente la lutte d'Apollon et de Marsyas, nous voyons trois Muses : deux d'entre elles, Calliope et Polymnie, sont du côté d'Apollon ; Euterpe est près de Marsyas et prend parti pour lui.* A Mantinée, Praxitèle avait représenté en bas-relief Marsyas jouant de la flûte, et à côté de lui une Muse qui, sans doute, n'était autre qu'Euterpe.* Enfin, d'après certaines légendes, Euterpe s'était unie aves le fleuve thrace Strymon, tandis qu'Apollon avait épousé Calliope.* A l'origine, cette Muse faisait donc partie de la joyeuse troupe des compagnons de Dionysos. Plus tard, elle présida seument au jeu de la flûte :
+
+_« Dulciloquos calamos Euterpe flatibus urget. »_
+
+*) Voir, à l'appendice n° 1, la façon dont Euterpe est représentée dans le groupe de la villa de Cassius.
+
+*) _Symp._ 9, 14, 8. L'explication de Cornutus (_De N. D._, 14, p. 49) est encore moins satisfaisante : [GREEK].
+
+*) _Elit. Céram._ tom. 2, pl. 70.
+
+*) Pausan. 8, 9, 1.
+
+*) Apollod. 1, 3, 4. Sur l'union de Calliope et d'Apollon, voir Schol. _Apollon_, 1, 23 ; Schol. _Pind. Pyth._ 4, 313.
+
+L'image souriante de _Thalie_ éveille, comme celle d'Euterpe, le sentiment de la joie. Cette Muse porte le même nom que l'une des Charites, et son rôle n'est pas sans analogie avec celui de ces divinités. « Avec vous, ô déesses, dit Pindare, s'accomplit pour les mortels tout ce qu'il y a d'agréable et de doux.* » Ces vers du poète thébain en l'honneur des Charites d'Orchomène pourraient s'appliquer à Thalie. Elle inspire aux hommes une douce gaieté, elle embellit et _fleurit_ la vie.* Elle préside aux banquets qu'animent le chant et la musique, mais lorsque l'ordre n'est pas encore troublé, avant le bruyant et tumultueux _Comos_. « C'est elle, dit Plutarque, qui donne un caractère de sociabilité au désir du boire et du manger ; aussi applique-t-on le mot de [GREEK] aux compagnons qui boivent ensemble amicalement et joyeusement, sans grossièretés ni violences.* » Souvent aussi, d'après une autre explication, Thalie est considérée comme une Muse agreste : elle passe pour avoir enseigné aux hommes le travail de la terre ; les laboureurs lui attribuent le soin, la conservation des plantes et des semences.* Virgile l'invoque comme Muse de la pastorale, et le _pedum_ qu'elle porte d'ordinaire est un témoignage de cette attribution. Divinité joyeuse de la vie rustique, Thalie devint facilement avec le temps la Muse de la comédie, qui, suivant la tradition générale, a son origine dans les Dionysiaques champêtres. Du temps des Romains, elle n'a plus d'autre signification. Si le lierre ou le pampre qui ornent sa tête rappellent encore son origine, à son costume, à sa chaussure, au masque qu'elle tient à la main, on la reconnaît facilement pour la Muse du genre comique.
+
+*) Pind. _Olymp._ 14, 4-5.
+
+*) C'est l'interprétation stoïcienne de Cornutus, _De N. D._ 14, 50.
+
+*) Plutarch. _Symp._ 9, 14, p. 746 f.
+
+*) Schol. Apollon. 3, 1. [GREEK]. Cf. Plut. Symp. 9, p. 745 a.
+
+En ce temps aussi, la tragédie est représentée par _Melpomène_, dont la figure grave et passionnée contraste avec celle de sa sœur. On doit reconnaître que Melpomène n'eut que fort tard la tragédie en partage : pendant longtemps cette Muse, comme l'indique son nom, fut simplement une divinité du chant et de l'harmonie musicale.* A l'époque d'Horace,* elle ne semble pas encore présider au genre tragique : ce poète l'invoque deux fois comme la Muse de la poésie lyrique. Associée à Dionysos comme les autres Muses, Melpomène semble être avec le dieu dans des rapports plus intimes que ses sœurs. Quand Dionysos était considéré comme chef du chœur, il portait le nom de _Melpomenos_ : « on lui applique cette dénomination, dit Pausanias, pour la même raison qu'on donne à Apollon l'épithète de Musagète.* » Melpomène se trouvait ainsi rapprochée du dieu par son nom ; c'est peut-être pour cette raison qu'on songea plus tard à lui attribuer la tragédie née du culte dionysiaque. Le pampre qui couronne d'ordinaire sa tête témoigne de ses rapports avec le dieu. Elle est représentée dans l'attitude des héros dont la tragédie chante les douleurs, avec les attributs du plus grand des héros. Le masque tragique d'Hercule, sa massue, sont inséparables des statues de Melpomène. Elle est quelquefois debout, un pied levé et posé sur un rocher qu'elle semble vouloir gravir.
+
+*) Cornut. _De N. D._ 14, p. 50 : [GREEK].
+
+*) _Od._ 1, 24 :  
+_... Præcipe lugubres_  
+_Cantus Melpomene, cui liquidam pater_  
+_Vocem cum cithara dedit_  
+_..._  
+_Od._ 4, 3 :  
+_Quem tu, Melpomene, semel_  
+_Nascentem placido lumine videris ..._
+
+*) Pausan. 1, 2, 4.
+
+La tragédie grecque est née du chœur lyrique et ne s'en est jamais séparée : de même _Terpsichore_ accompagne et suit Melpomène. Cette Muse préside à la fois aux chœurs de danse et aux chœurs dramatiques dont la danse fut un élément primitif. Au temps d'Homère, dans les cités _aux vastes chœurs_, les jeunes danseurs se réunissent, et se forment en cercle autour du cithariste assis : celui-ci, parle son de la phorminx et par ses chants, dirige le mouvement de la danse. C'est ainsi sans doute que fut conçu d'abord le rôle de Terpsichore. Les danses religieuses autour des autels des dieux, plus tard les mouvements cadencés autour de la _thymélè_, le chœur dramatique enfin fut placé sous l'invocation de cette Muse. A la dernière époque de la religion grecque, on semble la considérer comme présidant exclusivement à la poésie lyrique. La cithare ou la lyre est son attribut ordinaire ; c'est avec cet instrument, suivant les vagues expressions d'Ausone, « qu'elle excite, modère et accroît les impressions passionnées.* » Elle est souvent représentée assise, pinçant la cithare, et la tète couronnée de laurier. Les peintures de Pompeï nous la montrent la tête baissée, penchée sur son instrument : elle semble écouter les doux sons de sa lyre dont elle vient de tendre les cordes.
+
+*) « Terpsichore affectus cithara movet, imperat, auget. »
+
+La cithare est l'attribut d'_Érato_* comme celui de Terpsichore : il est facile cependant de distinguer ces deux Muses. Terpsichore est ordinairement assise ; Érato est toujours debout, et tandis qu'elle pince son instrument de la main et du plectrum, un léger mouvement de son corps indique qu'elle commence le pas de danse qui ouvre la fête.* Elle est plus passionnée que Terpsichore. C'est la Muse de l'hyménée. Quelquefois un Amour est à ses pieds,* quelquefois elle est presque entièrement nue, et son image a une grande analogie avec les représentations de Vénus.* Le rôle de cette Muse n'est donc pas douteux : elle préside aux noces et à la poésie érotique. C'est elle qu'invoque Apollonius au début du troisième chant des Argonautiques,* où il célèbre l'amour de Médée pour Jason ; au commencement du septième chant de l'Énéide, Virgile l'invoque également ; car l'hymen d'Énée et de Lavinie est l'événement capital de la seconde partie du poème.* Les philosophes étaient d'accord avec les poètes sur la signification de cette Muse. Suivant Plutarque, Érato préside à l'union de l'homme et de la femme, mais elle a sur cette union une heureuse influence : elle tempère la fureur du plaisir, en modère les aiguillons et remplace la violence de la passion par une douce et calme affection. C'est une Vénus inoffensive et toute bienfaisante.* Les Platoniciens et les Stoïciens interprétaient le nom d'Érato d'une façon plus élevée : pour eux, cette Muse exprimait l'amour de la science et de la sagesse, c'est-à-dire la philosophie même.*
+
+*) [GREEK] (_Pitt. antich. Ercol._ t. 2, pl. 2-6). L'instrument que tient la Muse dans cette fresque n'est pas le _psaltérion_, mais bien la lyre de forme allongée. Une inscription de l'Anthologie (Jacobs, 9, 505) nous représente Érato jouant de la phorminx.
+
+*) Voir la fresque citée ci-dessus.
+
+*) Dans la collection de la reine Christine (Clarac. _Stat. ant. de l'Europe_, pl. 522).
+
+*) Voir Panofka, _Terres cuites_, pl. 41, 2.
+
+*) Apollonius attribue à Érato le rôle de Vénus : [GREEK].
+
+*) Æn. 7 ; 37 : _Nunc age qui reges, Erato, quæ tempora rerum._
+
+*) Plut. _Symp._ p. 746 f.
+
+*) Plat. _Phæd._ 91. --- Cornutus (_De N. D._ 14, p. 51, éd. Osann.), après avoir donné la même interprétation, par une fausse étymologie du nom de cette Muse (il le fait dériver de [GREEK]) la considère comme présidant à l'art de la dialectique : [GREEK].
+
+Le rôle de _Polymnie_ est plus difficile à déterminer : il semble d'ailleurs avoir varié suivant les siècles. D'après l'étymologie la plus probable, Polyhymnia est la Muse des hymnes ou des chants en l'honneur des dieux et des héros.* Sur le bas-relief de l'apothéose d'Homère, elle est. représentée auprès d'Apollon, écoutant avec ravissement les sons de la lyre divine ; ses cheveux sont épars, sa figure est agitée par l'inspiration qui descend en elle : elle recueille avec enthousiasme les chants divins qu'elle pourra redire ensuite.* Telle fut probablement la signification la plus ancienne de cette Muse. Mais une autre étymologie de son nom,* étymologie qui paraît avoir eu crédit dans l'antiquité, lui attribue un autre rôle. D'après Plutarque, Polymnie préside à la faculté d'apprendre et de se souvenir : c'est pour cela, dit-il, que les Sicyoniens ont donné à une de leurs trois Muses le nom de _Polymathia_.* Polymnie se confond presque ainsi avec Mnémosyne. Les statues antiques qui nous sont parvenues semblent confirmer l'explication de Plutarque. Polymnie, en effet, est toujours représentée dans l'attitude de la méditation et du souvenir. Elle ne porte aucun attribut. Une longue draperie l'enveloppe tout entière : son bras droit seul se lève sous les plis du manteau, et son menton vient s'appuyer sur sa main. Le doigt qu'elle tient quelquefois appliqué à la bouche ajoute à l'expression silencieuse de sa figure et de tout son corps. A son attitude, à l'arrangement des draperies qui la recouvrent, on peut la prendre pour Mnémosyne, dont on la distingue difficilement.* Le silence expressif des statues de Polymnie fit attribuer à cette Muse un singulier rôle, dans les derniers siècles de l'empire romain : elle fut considérée comme présidant à l'art mimique. « Ces doigts qui parlent, ce silence éloquent, ces récits du geste, dit Cassiodore, passent pour être l'invention de la Muse Polymnie ; elle voulait montrer que les hommes peuvent exprimer leurs volontés sans le secours de la parole.* » Cette dernière signification de Polymnie se trouve confirmée par une ingénieuse épigramme de l'Anthologie,* et par le vers connu d'Ausone :
+
+_« Signat cuncta manu, loquitur Polyhymnia gestu. »_
+
+*) _Etym. M._ p. 396, 38 : [GREEK]. Cornutus l'explique par : [GREEK] --- Diodore (4, 7) donne la même étymologie, en la développant.
+
+*) _Mus. Pio. Cl._ 1, pl. 5 b. --- L'inscription de la peinture d'Herculanum : [GREEK] se rapporte à la même conception. Les mythes sont en effet la matière des chants en l'honneur des dieux.
+
+*) De [GREEK], souvenir. Cf. Plut. _Symp._ 9, 14, 1 : [GREEK].
+
+*) _Symp._ 9, 14, p. 746 e.
+
+*) Voir Clarac, pl. 328 ; _Mus. Pio._ Cf. 1, 28, _etc._ Une statue de Polymnie provenant de Thèbes est au _British Museum_ (9, pl. 4). La tête manque ; mais à la draperie et à l'attitude du corps, qui exprime la méditation, il est impossible de mécconnaître Polymnie.
+
+*) Cassiod. Variar. 1, 4, epist. 51, p. 76, éd. Garet, 1579.
+
+*) Éd. Jacobs, 9, 505 : [GREEK].
+
+*) Une inscription que nous avons trouvée dans les ruines de l'hiéron des Muses, et gravée sur la base d'une statue de Polymnie, représente cette Muse offrant une libation à Jupiter son père (Voir l'Appendice n° 2, inscription n° 1).
+
+Le rôle d'_Uranie_ est aussi clair que son nom. C'est la Muse qui préside à l'étude des choses célestes : « elle observe, dit Ausone, les mouvements des astres dans le ciel. » La dignité de son attitude, la gravité de sa physionomie, le rang qu'elle occupe auprès de Calliope dans le groupe sacré,* tout exprime la grandeur des nobles études qu'elle représente. Ses attributs ordinaires sont un globe céleste quelquefois orné d'étoiles, et un compas ou une baguette qui lui sert à désigner sur la sphère la position des astres ou leurs révolutions. Sous l'empire romain, les astrologues semblent avoir revendiqué pour eux la muse de l'astronomie et lui avoir attribué un pouvoir fatidique, qui n'est pas en désaccord d'ailleurs avec le caractère général des Muses.* Les Stoïciens ne bornaient pas le rôle d'Uranie à l'étude des mouvements célestes : pour eux, cette Muse n'était autre chose que la science de la nature universelle.*
+
+*) Plat. _Phæd._ p. 259 d : [GREEK]. Dans la Théogonie, Uranie est citée à côté de Calliope qui a la prééminence. Cet ordre se trouve observé sur le _vase François_ (_Mon. Ined. Inst. arch._ 4, pl. 54-55).
+
+*) C'est ce qu'il est permis d'inférer de l'epigramme suivante (Anth. Jacobs, 9, 505) : [GREEK].
+
+*) Cornut. _De N. D._ 14, p. 51.
+
+Entre ses sœurs, _Calliope_ est la première, la Muse la plus puissante et la plus auguste. Ce rang d'honneur lui est assigné dans la Théogonie et ne lui fut jamais contesté.* Quand Homère s'adresse à la Muse, c'est de Calliope qu'il s'agit. Source de toute inspiration, elle est également invoquée par l'auteur de l'hymne au Soleil et par le lyrique Alcman.* Sur la célèbre amphore qui représente les dieux de l'Olympe escortés des Muses, Calliope est à sa place et à son rang en tête de ses sœurs.* Il y avait là une tradition constante que l'art respectait. La prééminence de Calliope lui fait attribuer en même temps une puissance plus grande d'inspiration : c'est à elle qu'on s'adresse de préférence pour obtenir le don poétique. « Les uns, dit Philostrate, _invoquent Calliope_, les autres le chœur des Muses, les autres encore Apollon* ; Calliope est ainsi presque égale au dieu Musagète lui-même et semble lui disputer le rang de chef du chœur. Mais il n'y a point hostilité entre eux : le mariage de Calliope et d'Apollon, souvent représenté sur les vases peints,* indique au contraire l'union et l'égalité de ces deux puissances. Les mythographes exprimaient encore la prééminence de Calliope en disant que Jupiter l'avait établie comme juge de la contestation entre Vénus et Perséphone pour la possession d'Adonis.* Dans l'Olympe comme sur la terre, Calliope est donc la première.
+
+*) _Théog._ v. 79. Cf. Plat. _Phæd._ p. 259 d : [GREEK] ; Apollod. 1, 3, 1 : [GREEK].
+
+*) _Hymn. Hom._ 21, éd. Baumeister : [GREEK]. Alcman. (_Fragm._ 45 ; _Lyr. Gr._ Bergk, 5me édit) : [GREEK].
+
+*) Cette amphore est connue sous le nom de _vase François_. Elle a été publiée dans les _Monum. ined. Inst. Arch._ 4, pl. 54-55.
+
+Quant aux attributions spéciales de cette Muse, on ne peut les déterminer d'une manière précise ; elles ont d'ailleurs varié suivant les temps. La supériorité de Calliope sur ses sœurs a dû faire qu'on lui donnât d'abord la présidence du genre poétique le plus important. Quand la poésie épique florissait en Grèce, elle était placée sous l'invocation de Calliope. C'est l'attribution que cette Muse semble avoir conservée en dernier lieu : sur les peintures d'Herculanum, au-dessous de l'image de Calliope, se lit l'inscription : [GREEK], et l'on se rappelle le vers d'Ausone :
+
+_« Carmina Calliope libris heroïca mandat. »_
+
+*) Philost. _Heroïc._ 19, 1, 7 cf. _Heroïc._ 20, 3 : [GREEK].
+
+*) Voir, entre autres, _Elit. Céram._ 2, pl. 80. Sur cette union d'Apollon et Calliope, d'où naissent Hymenæos, Ialemos et Orphée, voir : _Schol. Apollon. Rhod._ 1, 23 ; _Schol. Pind. Pyth._ 4, 313.
+
+*) Hygin. _Astron._ 2, 7.
+
+Mais cette attribution ne fut nullement constante. Quand l'éloquence devint en Grèce le premier des arts, l'éloquence fut placée sous la protection de la première des Muses. Calliope, qui présidait d'abord au genre épique, présida ensuite au genre oratoire. Ce rôle lui est déjà donné dans la Théogonie : « C'est elle qui accompagne les rois vénérés, » c'est-à-dire c'est la puissance de l'éloquence que doivent posséder les rois et les hommes d'état, suivant l'interprétation que donne Plutarque de ce vers connu.* Les Stoïciens attribuaient la même signification à Calliope : « elle représente, dit Cornutus, l'éloquence à la belle voix et au beau langage, qui sert aux hommes d'état à gouverner, à s'adresser au peuple et à le conduire par la persuasion.* » Une épigramme de l'Anthologie lui donne un sens plus large : Calliope devient la Muse de la science* --- Malgré cette variété de significations, les statues et les représentations de Calliope sont presque toutes identiques. La peinture d'Herculanum lui donne seule le _volumen_, qu'elle ne porte pas ailleurs. Ordinairement Calliope est assise, dans un état de méditation : sa tête est appuyée sur une de ses mains ; son coude repose sur ses genoux ; elle tient le _stylus_ et les tablettes. Elle semble se disposer à écrire ou relire ce qu'elle vient d'écrire. C'est l'attitude de la composition.
+
+*) _Symp._ 9, 14, p. 746 e.
+
+*) _De N. D._ 14, p. 51.
+
+*) _Anth._ Jacobs 9, 505 : [GREEK].
+
+# Chapitre 6. --- Fin de la religion des Muses.
+
+« D'autres diront qu'Aphrodite est le désir, Hermès le langage, que _les Muses sont les arts_, qu'Athénè est la sagesse. Voyez-vous dans quel abîme d'impiété nous allons tomber, si chaque divinité n'est pour nous qu'une passion, une force, une vertu.* » --- L'impiété dont se plaint Plutarque avait alors envahi tous les esprits cultivés. Les Grecs vieillis, honteux des visions naïves de leur enfance, s'appliquaient à remplacer les mythes par des doctrines morales : ils ne voyaient plus que des allégories dans les brillantes créations du monde primitif. Déjà ces démons, cette foule de génies qui avaient pendant de longs siècles peuplé la terre, le ciel et les eaux, s'envolaient, laissant la terre désenchantée et l'imagination de l'homme déserte. La philosophie achevait de ruiner les antiques croyances. Dans cette œuvre destructive, s'il est un mythe qui méritât d'être épargné, c'était celui des Muses. La pureté de leur légende, leur virginité,* leur douce et morale influence sur l'âme de l'homme, toutes les nobles œuvres nées à leur souffle, devaient les préserver des railleries des sceptiques et de l'abstraction des philosophes. Elles partagèrent cependant le sort commun aux autres divinités, et leur chœur aimable s'évanouit pour faire place à de froides allégories.
+
+*) Plutarch. _Amat._ p. 751 e.
+
+*) Chez les mythographes d'époque postérieure, la virginité des Muses n'est pas bien établie : Calliope s'unit avec Apollon, Euterpe avec le fleuve Strymon. Mais la tradition générale reconnaissait les Muses comme vierges. Voir Diodore, p. 148 p : [GREEK]. --- Id. p. 150 c. : [GREEK].
+
+Plutarque, si attaché aux antiques croyances, tombe lui-même dans l'impiété qu'il reproche aux autres, quand il essaye d'expliquer le nombre des Muses. Les anciens, dit-il, remarquèrent de bonne heure que les sciences pouvaient se diviser en trois genres : la philosophie, la rhétorique, les mathématiques. Ils considérèrent ces trois genres comme les dons de trois divinités, auxquelles ils donnèrent le nom de Muses. Plus tard, au temps d'Hésiode, quand les sciences eurent acquis un plus grand développement, on en vint à distinguer trois divisions dans chacun de ces genres. Les mathématiques, en effet, comprennent la musique, l'arithmétique, la géométrie ; la philosophie comprend la logique, la morale, l'étude de la nature ; l'art oratoire se compose du panégyrique, du genre délibératif, du genre judiciaire. C'est ainsi qu'on assigna aux Muses le nombre neuf.*
+
+*) Plutarch. _Symp._ 9, 14, p. 744 c.
+
+Chaque école philosophique interprète les Muses suivant son système. Les Pythagoriciens expliquent le nombre de ces divinités par la perfection de la triade et par la valeur du nombre neuf, qui est le premier carré du premier nombre impair.* Ils attribuent aux Muses le soin de veiller à la symphonie de l'univers.* Pour eux, les différentes parties du monde sont ordonnées et unies entre elles suivant des rapports harmoniques, et à chacune de ces parties préside une Muse. Mnémosyne est le lien commun et l'harmonie générale.* Aux yeux des Platoniciens, les Muses ne sont autre chose que les sciences opposées à l'empirisme : elles naissent de Mnémosyne, c'est-à-dire de la réminiscence.* D'autres enfin donnent du mythe une interprétation grossière et toute matérielle : Apollon et les Muses sont les dix modulations de la voix humaine* !
+
+*) _Idem._, ibid.
+
+*) Jambl. _Vit. Pyth._ 45 : [GREEK]. Cf. Porph. _Vit. Pyth._ 31.
+
+*) Plutarch. _Symp._ p. 745 c. Cf. Cornut. cap. 17, p. 49. Cette idée de l'union des Muses avec les sphères célestes se trouve reproduite chez les Platoniciens de la Renaissance (Mars. Ficin. _De Immort. Anim. sive. de Theol. Platon._ 4, cap. 1, p. 131).
+
+*) Maxim. Tyr. _Dissert_, 16, p. 189, éd. Davis : [GREEK].
+
+*) C'est l'interprétation que donnait déjà Anaximènes de Lampsaque, un des historiens qui accompagnèrent Alexandre. Elle se trouve développée chez Fulgence (_Mythol._ 1, 14) : « Huic etiam Apollini novem deputant Musas ipsumque decimum Musis adjiciunt ; illa videlicet causa, quod _humanæ vocis decem sint modulamina_ ... Fit ergo vox quatuor dentibus econtra positis, quos lingua percutit : e quibus si unus minus fuerit, sibilum potius quam vocem reddat necesse est. Duo labia, velut cymbala, verborum commoda modulantia : lingua est plectrurn quæ curvamine quodam vocalem format spiritum : palatum, cujus concavitas profert sonum ; gutturis fistula quæ tereti meatum spiritalem præbet excursu ; et pulmo, qui velut aerius follis concepta reddit ac revocat. --- Habes ergo Musarum novem vel Apollinis ipsius redditam rationem, sicut in libris suis Anaximander ? (_Anaximenes_, d'après la correction de M. Rossignol, _Rev. de Philol._ 2) Lampsacenus et Zenophanes Heracleopolites exponunt. »
+
+Les poètes ont depuis longtemps perdu la foi qui inspirait leurs ancêtres. Cependant, aux derniers jours de la Grèce, les Muses semblent trouver encore un adorateur fervent dans la personne de Proclus, « ce pontife de toutes les religions. » L'hymne qu'adresse aux Muses le philosophe alexandrin n'est pas trop indigne des siècles inspirés. Mais il témoigne surtout du changement qui a transformé la tradition et complètement altéré les antiques croyances. « Chantons, dit Proclus,* chantons la lumière qui élève en haut les mortels : ce sont les neuf filles du grand Jupiter, les Muses à la voix harmonieuse. Quand nos âmes erraient au travers des abîmes de la vie, leurs livres salutaires les ont sanctifiées, et les ont préservées de l'atteinte funeste des terrestres douleurs. C'est par elles que nos âmes ont appris à s'élancer au-dessus des flots profonds de l'oubli, afin d'arriver pures vers l'astre associé à leurs destins, vers cet astre qu'elles ont abandonné jadis, lorsqu'elles tombèrent sur la plage de l'existence, follement éprises d'amour pour la matière. Quant à moi, déesses, calmez mes agitations tumultueuses, et enivrez-moi des paroles sensées des sages ; faites que la race des hommes impies ne puisse me dévoyer du sentier sacré, lumineux et fécond ... Écoutez-moi, dieux qui tenez le gouvernail de la sagesse sacrée, vous qui allumez dans les âmes des mortels la flamme qui les enlève en haut ; vous qui les ravissez au séjour des immortels, loin du gouffre ténébreux de ce monde, en les sanctifiant par les purifications des chants mystiques.* »
+
+*) Nous empruntons la traduction donnée par M. Pierron, p. 461 de son _Histoire de la littérature grecque_.
+
+*) Des idées analogues se trouvent développées dans l'hymne orphique aux Muses.
+
+L'éclat de ces images, l'élévation de ces idées, ne peuvent nous faire illusion sur le sentiment qui anime le poète. Ce n'est pas aux vierges de Piérie que s'adresse cet hymne, où leur nom seul est prononcé. Les Muses ne sont pour Proclus qu'un prétexte à une brillante allégorie, qu'une occasion de traduire en langage poétique ses idées philosophiques. La foi des rhapsodes hésiodiens est morte pour toujours. Mais la croyance vivante aux Muses, chassée de l'esprit des poètes, s'est réfugiée dans l'âme du peuple. Il y a encore un coin de la Grèce où les divinités sont honorées. L'habitant de l'Hélicon, qui les entend passer au sein de la nuit et qui écoute leurs chants, leur adresse du fond du cœur un pieux hommage et vénère encore leurs autels. Aux derniers comme aux premiers jours de l'hellénisme, les Muses sont, pour le vulgaire, des génies harmonieux qui habitent l'air limpide, se jouent dans l'eau des sources et au milieu des sapins de la montagne.
+
+# Appendice.
+
+## 1. Statues et représentations des Muses.
+
+Notre intention n'est pas de dresser un catalogue complet de toutes les représentations des Muses. Nous nous contenterons d'énumérer les principales œuvres où les artistes grecs avaient exprimé l'image de ces divinités, et, parmi les statues qui nous sont restées, nous choisirons, pour les décrire, deux groupes appartenant à deux époques différentes de l'art.
+
+Une épigramme d'Antipater de Thessalonique* nous donne la courte description de trois statues de Muses qui, par les noms de leurs auteurs, se rapportent à la période archaïque de l'art grec. Une de ces Muses qui avait pour attribut le _barbiton_, était l'œuvre d'Agéladas d'Argos ; une autre, avec la flûte, était de Canachus ; la troisième, avec la lyre, était due à Aristoclès de Sicyone. Ces trois statues avaient été rapprochées sans doute à cause de la similitude de leur style ; mais rien n'indique qu'elles fissent partie d'un même groupe auquel les trois artistes auraient collaboré.
+
+*) Anth. Palat. Plan. 220.
+
+Un artiste du même temps, Praxias l'Athénien, disciple de Calamis, avait sculpté les Muses, avec Artémis, Latone et Apollon, sur un des frontons du temple de Delphes.* Enfin, au témoignage d'Euphorion, bibliothécaire d'Antiochus, on voyait à Mitylène une Muse archaïque avec la _sambuque_ ou la _magadis_.* Cette Muse avait été sculptée par Lesbothémis.
+
+*) Pausan. 10. 19, 4.
+
+*) Athén. 4, 182 f. ; 14, 635 b. éd. Is. Casaub.
+
+Quel était le caractère des œuvres que nous venons de citer ? Les deux statues archaïques du musée de Venise permettent de répondre à la question.* Par leur type comme par leur exécution, elles appartiennent à un temps où la forme artistique ne dominait pas encore complètement la forme hiératique. Dans la figure, les coins des yeux et de la bouche ne sont pas sans doute relevés, comme sur les statues d'Égine ; mais la rudesse des traits fortement accusés, annonce une époque où l'art n'avait pas encore acquis toute sa souplesse. Les draperies, largement dessinées, sont d'une grande raideur. D'ailleurs, les pieds joints et le parallélisme de la pose des bras semblent indiquer que ces sculptures avaient une destination architectonique : ces Muses furent probablement des Caryatides. Elles portent toutes deux la coiffure grecque ancienne. Les cheveux ondulés, retombant sur la nuque, sont retenus par l'_ampyx_, genre de coiffure qui doit caractériser les Muses primitives, si l'on songe à l'épithète de [GREEK], qui leur est appliquée par Hésiode et par Pindare. Trois torsades de cheveux descendent de chaque côté sur la poitrine, suivant l'usage des sculptures les plus anciennes. Quan taux vêtements, elles portent le long _chiton_ ionien, formant sur l'avant-bras des demi-manches larges, à boutons et à lacets ; et, par-dessus le _chiton_, le _péplos_. Aux pieds elles ont les sandales, la chaussure tyrrhénienne dorée, désignée par Euripide comme la chaussure des Muses.*
+
+*) V. O. Müll. _Denkm. d. alt. K._ 2, n° 730-731. Ces statues ont déjà été décrites par Guédéonoff (_Ann. Inst. Arch._ 1852).
+
+*) _Iphig. Aul._ 1042.
+
+A l'époque florissante de l'art grec, les représentations de ces divinités se multiplient. Un groupe de Muses, enlevé de Thespies par Mummius et transporté à Rome, était peut-être l'œuvre de Praxitèle.* Pausanias avait vu dans un temple de Mégare des statues de ces divinités sculptées par Lysippe.* Dans le bois sacré de l'Hélicon, était un groupe des neuf Muses, œuvre de Céphisodote. Au même endroit, on voyait un second groupe auquel avaient travaillé Céphisodote, Strongylion et Olympiosthènes. Philiscus de Rhodes était l'auteur des neuf Muses qui se trouvaient à Rome, près du portique d'Octavie.* Au temple d'_Hercules Musarum_ était placé un groupe du même genre, apporté d'Ambracie à Rome par Fulvius Nobilior, après sa victoire sur les Étoliens.* Ce groupe nous est connu par les monnaies des familles romaines.*
+
+*) Pline (34, 69) dit seulement que Praxitèle était l'auteur des statues placées devant le temple de la Félicité. Or, d'après Cicéron (_in Verr._ 4, 2) c'est à ce même endroit qu'avaient été disposées les Muses enlevées par Mummius.
+
+*) 1. 43, 6.
+
+*) Plin. 36, 35 ; _Cicer. ad. Fam._ 7, 23.
+
+*) Plin. 35, 66.
+
+*) Stieglitz, _Num. Fam. rom._ 66.
+
+On peut citer comme appartenant au temps des empereurs : les Muses du célèbre bas-relief de l'apothéose d'Homère, par Archélaüs de Priène* ; un groupe du Céramique d'Athènes, sculpté et consacré par Eubulidès* ; enfin une statue de basse époque, signée du nom d'Atticianus d'Aphrodisias, et qui est au musée de Florence.*
+
+*) M. Brunn (_Hist. des artistes grecs_, 1, p. 584) rapporte ce bas-relief au commencement du règne de Tibère. V. O. Müller, _Denkmäler_, 2, pl. n° 742. Ce monument intéressant, souvent décrit, est aujourd'hui au Musée britannique.
+
+*) Pausan. 1, 2, 4. Une base de statue portant les noms d'Eucheir et Eubulidès est au Musée du Louvre (Voir Clarac. _Inscr._ pl. 41, 443).
+
+*) _Mus. Flor._ Stat. 1, tav. 18.
+
+Parmi les groupes qui nous ont été conservés, un des plus remarquables est celui du Vatican, qui provient de la villa de Cassius à Tivoli. Visconti* le considérait comme une copie de l'œuvre de Philiscus. Quelle que soit la valeur de cette hypothèse, le groupe du Vatican n'en est pas moins des plus intéressants à étudier. Il est bien conservé ; et les autres statues qui se trouvent dans les musées de l'Europe n'en diffèrent pas sensiblement.*
+
+*) _Mus. Pio. Cl._ 1, 17-27.
+
+*) Pour l'énumération des statues et images des Muses qui nous sont parvenues, voir O. Müller, _Manuel d'archéologie_, § 393, 2. La description et la reproduction de ces monuments se trouvent dans les _Denkmäler der allen Kunst_, du même auteur, ouvrage revu et complété par Fr. Wieseler (2me part., p. 27-33 ; planches, n° 730-750). Voir aussi Clarac, _Statues antiques de l'Europe_, pl. 497-538.
+
+Clio y est représentée assise, tenant de la main gauche un manuscrit qu'elle déroule. Elle porte la tunique à demimanches étroites, qu'on nommait [GREEK], et les chaussures dites _alutæ_, attribuées ordinairement aux personnages de théâtre. La tête n'appartient pas à la statue.
+
+Euterpe se tient appuyée, presque debout, contre un rocher. La flûte qu'elle tient de la main gauche est moderne. Sa tunique est finement plissée, avec une gemme à l'ourlet supérieur, au milieu du sein. La grâce anime sa physionomie.
+
+Thalie, à la figure demi souriante, la tête couronnée de lierre, est assise. A côté d'elle est le masque comique. Sa main droite porte le _pédum_. Le _tympanum_ qu'elle tient de la gauche a été restauré.
+
+Melpomène est debout, un pied posé sur un rocher. Elle a pour attributs le masque tragique d'Hercule et la massue. Sa chevelure épaisse et abondante est couronnée de lierre.
+
+Terpsichore, assise, pince de la main droite la lyre de corne qu'elle tient de la gauche. Elle porte une couronne de lauriers.
+
+Érato debout, avec le léger mouvement d'un pas de danse, tient la cithare qui donne le signal de la fête.
+
+Polymnie est sans attribut. On la reconnaît à son attitude. Elle est debout, tout entière drapée : son bras droit se lève sous les plis du péplos jusqu'à la hauteur du menton. Sa tête est couronnée de roses.
+
+Dans la statue d'Uranie, le globe et le compas sont modernes. Mais l'attribution de cette statue n'est pas douteuse, si on la compare à une autre du Capitole, où on lit le nom d'Uranie en caractères antiques. Cette dernière statue est surtout remarquable.
+
+Calliope est assise, un coude appuyé sur ses genoux, tenant d'une main le _stylus_, de l'autre les tablettes, dans l'attitude de la méditation.
+
+Mnémosyne, la mère des Muses, est représentée drapée comme Polymnie, avec un bras dans les plis du manteau, tandis que l'autre s'appuie sur le côté gauche.*
+
+*) Voir les planches 17-27 du _Musée Pio-Clementino_.
+
+La peinture avait souvent sans doute reproduit le chœur des Muses : de ces représentations, nous ne possédons aujourd'hui que les huit Muses provenant d'Herculanum.*
+
+*) _Pitt. ant. Ercol._ T. 2, tav. 2-9.
+
+Quant aux nombreuses images de ces divinités que nous offrent les bas-reliefs, les sarcophages, les vases peints, et les gemmes, il serait superflu de les énumérer ici. Les principaux de ces monuments ont déjà été signalés dans le cours de cette dissertation : leur description d'ailleurs appartient plutôt à un ouvrage d'archéologie qu'à une étude mythologique. Bornons-nous à citer comme une des curiosités de l'art antique, la célèbre agate du roi Pyrrhus, dont parle Pline : les veines naturelles de cette pierre étaient si heureusement disposées, que l'artiste avait pu y graver Apollon tenant la cithare, et les neuf Muses, chacune avec ses attributs.*
+
+*) Plin. 37, 3.
+
+## 2. Quelques inscriptions relatives aux Muses.*
+
+*) Pour le commentaire de ces inscriptions, voir notre _Recueil d'inscriptions inédites de Béotie_, p. 40-44 ; 51-57 (Paris, Imprimerie Impériale, 1868 ; chez E. Thorin, libraire-éditeur, rue de Médicis, 7).
+
+1° Sur la base d'une statue de Polymnie, au milieu des ruines de l'hiéron des Muses de l'Hélicon : [GREEK].
+
+« Fille de Jupiter, Polymnie, j'envoie à Jupiter ce parfum de nectar, pour m'acquitter envers mon père de mon devoir sacré. »
+
+2° Au même endroit, sur la base d'une statue de Terpsichore : [GREEK].
+
+« Le lierre est un ornement qui convient et à Terpsichore et à Bromios ; à l'une pour qu'elle soit inspirée, à l'autre (pour qu'une douce joie l'anime ? ). »
+
+3° Consécration aux Muses d'une statue d'Auguste : [GREEK].
+
+4° Monument consacré par un artiste vainqueur dans différents jeux de la Grèce (la première partie de l'inscription manque) : [GREEK].
+
+[Un tel a consacré ce monument aux Muses, après avoir été vainqueur] trois fois à la panégyrie des Magnètes dans la ville de Démétrias, quatre fois aux Héracléia de Thèbes, trois fois aux Lividia de Chalcis, trois fois aux Cæsaréa de Tanagre, deux fois à la panégyrie des Thessaliens dans la ville de Larisse, deux fois aux Érotidia.
+
+5° A Thespies. --- Catalogue des vainqueurs aux concours des Muses : [GREEK]. 
+« Sous l'archontat de Zénon, Cleænetos, fils de Dasios, présidant les jeux pour la seconde fois, Polycratidès, fils d'Euphaeinos, exerçant la prêtrise des Muses et membre de la corporation des artistes ; »
+
+« Argeios, fils d'Amphiclidès, petit-fils de Cleænetos, étant secrétaire, et Cleænetos, fils de Dasios, _pyrphore_, les vainqueurs aux concours des Muses ont été les suivants : »
+
+« Auteur du _prosodion_, Bacchios, fils de Bacchios, Athénien ; joueur de trompette ... fils de Mélanthios, Thessalien de Kiérion ; héraut, Heroïdès, fils de Socrate, Thébain ; poète épique, Mestor, fils de Mestor, Phocidien ; rhapsode, Théodoros, fils de Pythion, Athénien ; joueur de flûte, Perigénès, fils d'Héraclidès, de Cyzique ; aulède, Straton, fils de Straton, de Sidon ; cithariste, Apollodotos, fils de Déméas, Lycien de Xanthos ; citharède, Démétrios, fils d'Hamaloïos, Éolien de Myrinè ; auteur de drames satyriques, Aradas, fils de Timon, Athénien ; acteur de l'ancienne tragédie, Philocratès, fils de Théophanios, Thébain ; acteur de l'ancienne comédie, Évarchos, fils d'Hérodote, de Coronée. »
+
+Fin.
