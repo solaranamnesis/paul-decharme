@@ -940,9 +940,9 @@ Quant aux nombreuses images de ces divinités que nous offrent les bas-reliefs, 
 4° Monument consacré par un artiste vainqueur dans différents jeux de la Grèce (la première partie de l'inscription manque) :  
 κοινὸν Μαγνήτων ἐν Δημητριάδι  
 τρὶς, Ἡράκλεια ἐν Θηβαῖς τετράκις, ἐν Χαλ-  
-κίδι Λειβίδηα τρὶς, Καισάρηα ἐν Τανάγρᾳ τρὶς,  
+-κίδι Λειβίδηα τρὶς, Καισάρηα ἐν Τανάγρᾳ τρὶς,  
 κοινὸν Θεσσαλῶν ἐν Λαρείσῃ δὶς, Ἑρωτί-  
-δηα τρίς.
+-δηα τρίς.
 
 [Un tel a consacré ce monument aux Muses, après avoir été vainqueur] trois fois à la panégyrie des Magnètes dans la ville de Démétrias, quatre fois aux Héracléia de Thèbes, trois fois aux Lividia de Chalcis, trois fois aux Cæsaréa de Tanagre, deux fois à la panégyrie des Thessaliens dans la ville de Larisse, deux fois aux Érotidia.
 
