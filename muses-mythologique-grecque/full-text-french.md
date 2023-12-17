@@ -10,25 +10,25 @@
 
 ---
 
-# [Introduction.]()
+# [Introduction.](#introduction-1)
 
-# [Chapitre Premier. --- Les Muses dans Homère et la Théogonie.]()
+# [Chapitre Premier. --- Les Muses dans Homère et la Théogonie.](#chapitre-premier-----les-muses-dans-homère-et-la-théogonie-1)
 
-# [Chapitre 2. --- Les Muses divinités des eaux.]()
+# [Chapitre 2. --- Les Muses divinités des eaux.](#chapitre-2-----les-muses-divinités-des-eaux-1)
 
-# [Chapitre 3. --- Les Muses et l'inspiration prophétique et poétique.]()
+# [Chapitre 3. --- Les Muses et l'inspiration prophétique et poétique.](#chapitre-3-----les-muses-et-linspiration-prophétique-et-poétique-1)
 
-# [Chapitre 4. --- Culte des Muses. --- Jeux et concours musicaux.]()
+# [Chapitre 4. --- Culte des Muses. --- Jeux et concours musicaux.](#chapitre-4-----culte-des-muses-----jeux-et-concours-musicaux-1)
 
-# [Chapitre 5. --- Muses étudiées individuellement.]()
+# [Chapitre 5. --- Muses étudiées individuellement.](#chapitre-5-----muses-étudiées-individuellement-1)
 
-# [Chapitre 6. --- Fin de la religion des Muses.]()
+# [Chapitre 6. --- Fin de la religion des Muses.](#chapitre-6-----fin-de-la-religion-des-muses-1)
 
-# [Appendice.]()
+# [Appendice.](#appendice-1)
 
-## [1. Statues et représentations des Muses.]()
+## [1. Statues et représentations des Muses.](#1-statues-et-représentations-des-muses-1)
 
-## [2. Quelques inscriptions relatives aux Muses.]()
+## [2. Quelques inscriptions relatives aux Muses.](#2-quelques-inscriptions-relatives-aux-muses-1)
 
 ---
 
