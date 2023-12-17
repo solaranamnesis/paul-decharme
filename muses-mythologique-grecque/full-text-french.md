@@ -186,7 +186,7 @@ Les rhapsodes héliconiens fixèrent également le nombre et le nom des Muses.* 
 
 *) Stackelberg, _Gräber d. Hellen._, pl. 19. On voit Apollon couronné de laurier, assis et jouant de la lyre ; devant lui, Mnèmè qui tient un rouleau de papier, derrière, Aoidè une lyre à la main, et Mélétè avec la double flûte.
 
-*) Cette amphore, actuellement au Musée britannique, a été reproduite dans les _Monuments inédits de l'Institut arch._ de Rome, vol. 5. pl. 37. Cf. _Annales_, 1852, article d'O. Jahn. La légende probablement altérée porte : [GREEK]. Welcker suppose que l'artiste aura voulu écrire : [GREEK] du verbe [GREEK]. Cette Muse serait donc la même que Mélétè. Sa physionomie a une expression sérieuse ; elle est vêtue du simple _chiton_ dorique ; elle tient les doubles flûtes, prête à accompagner Terpsichore.
+*) Cette amphore, actuellement au Musée britannique, a été reproduite dans les _Monuments inédits de l'Institut arch._ de Rome, vol. 5. pl. 37. Cf. _Annales_, 1852, article d'O. Jahn. La légende probablement altérée porte : Τερψιχόρα, Μοσαῖος, et Μελελωσα. Welcker suppose que l'artiste aura voulu écrire : μελετῶσα du verbe μελετάω. Cette Muse serait donc la même que Mélétè. Sa physionomie a une expression sérieuse ; elle est vêtue du simple _chiton_ dorique ; elle tient les doubles flûtes, prête à accompagner Terpsichore.
 
 Fixée dans ses traits généraux par Homère et par Hésiode, la religion hellénique n'eut cependant jamais rien de constant ni d'immuable : elle suivit les caprices de la vive imagination qui lui avait donné naissance ; en passant d'un canton à l'autre, elle se modifia insensiblement, se pliant aux traditions locales et aux fantaisies des poètes. Il ne faut donc pas s'étonner que les Muses novénaires ne soient pas universellement reconnues dans les textes antiques qui nous sont parvenus. D'après certains auteurs, elles étaient au nombre de quatre, allusion probable au tétrachorde primitif.* Les sept Muses de Lesbos rappellent l'heptachorde* inventé par Terpandre, ou les rapports qui unissent ces divinités à Apollon Hebdomagète.* Le nombre huit, donné aux Muses par les Pythagoriciens, se rapporte, suivant Plutarque, aux huit sphères célestes.* A Sicyone, une des trois Muses portait le nom de _Polymathia_, variante de Polyhymnia.* A Delphes, elles empruntaient leurs noms à l'art de la lyre, comme l'indiquent les dénominations de _Nétè_, _Mésè_ et _Hypatè_.* La religion des Muses fut donc soumise, comme celle des autres divinités grecques, à un certain nombre de variétés locales. Mais tous les témoignages que nous possédons à ce sujet sont d'une époque très-postérieure à la Théogonie, et nous permettent de croire que les Muses distinctes de celles de Thespies n'eurent jamais une grande place ni dans la religion, ni dans l'art. Toutes ces traditions particulières, tous ces cultes locaux, s'effacent pour nous devant le souvenir et les nobles images des Muses héliconiennes chantées par les poètes, vivantes encore dans les monuments de la statuaire grecque.
 
@@ -194,7 +194,7 @@ Fixée dans ses traits généraux par Homère et par Hésiode, la religion hell�
 
 *) Cornut. _De N. D._ 14, p. 47., éd. Osann.
 
-*) Apollon était surnommé [GREEK] ou [GREEK], parce que, suivant les traditions, il était né le sept du mois. On le disait aussi né dans le septième mois de l'année : de là le surnom d'[GREEK]. Aux fêtes d'Apollon, sept garçons et autant de jeunes filles conduisaient la pompe. Cf. Procul. _in Tim._ 3, 200 ; J. Lydus, _de Mens._ pag. 26.
+*) Apollon était surnommé ἑβδομαγἐνης ou ἑβδομαγέτης, parce que, suivant les traditions, il était né le sept du mois. On le disait aussi né dans le septième mois de l'année : de là le surnom d'ἑπταμηνιαῖος. Aux fêtes d'Apollon, sept garçons et autant de jeunes filles conduisaient la pompe. Cf. Procul. _in Tim._ 3, 200 ; J. Lydus, _de Mens._ pag. 26.
 
 *) Plutarch. _Symp._ 9, 14, p. 746 a. On trouve même deux Muses seulement citées dans un passage du stoïcien Cornutus (_De N. D._ 14, p. 47). Mais ces deux Muses sont d'invention philosophique, et de pures allégories. Elles n'ont sans doute jamais existé dans l'ancienne poésie. Telle est aussi l'opinion de Petersen, p. 89 de sa dissertation : _De Musarum apud Græcos origine, numero nominibusque_.
 
@@ -208,13 +208,13 @@ Les généalogies théogoniques se contentent d'exprimer sèchement le rapport q
 
 *) Lucien, _De Saltat._ cap. 24. Ces mots, est-il besoin de le dire, ont chez Lucien un sens sceptique. Ils n'en sont pas moins un témoignage en faveur de notre idée. Il est impossible de méconnaître dans le commencement de la Théogonie l'impression d'un sentiment religieux et la trace d'un culte local.
 
-Le plus ancien sanctuaire des Muses, celui de _Libethrion_,* était situé sur les pentes orientales du mont Olympe. Le nom donné à ce sanctuaire indique qu'il était au milieu d'un pays arrosé et coupé de nombreux ruisseaux.* Les eaux torrentueuses qui descendent de l'Olympe ont en effet, autrefois comme aujourd'hui, donné un nom à ce canton. Les Grecs modernes l'appellent _Canalia_, mot qui traduit exactement l'ancienne dénomination : [GREEK]. Ce sont des gorges sauvages, des ravins étroits et profonds, déchirés par les torrents qui roulent avec fracas des pentes supérieures de la montagne ; dans ces profondeurs humides, une puissante végétation est entretenue par l'eau, et de grands sapins s'en élancent pour aller chercher en haut le ciel et la lumière. Bien que la mer et les vastes horizons ne soient pas loin, ici on est enfermé, emprisonné dans une nature sauvage ; on n'y entend que la voix des eaux, les murmures de la forêt, ou la foudre de Jupiter qui tonne sur les sommets. C'est ici que descendaient les Muses, quittant la demeure de leur père, et plus d'une fois sans doute les Piériens qui s'approchaient de cette solitude crurent surprendre la voix même des déesses dans les bruits tour à tour éclatants et harmonieux des torrents. Un autre sanctuaire, celui de _Pimpleia_, leur était également consacré en Piérie. Strabon le place dans le canton de _Dion_, pays humide, aujourd'hui marécageux, revêtu d'épais taillis : le nom de ce sanctuaire* semble indiquer qu'il était placé près d'une source abondante qui se versait dans un bassin profond, toujours rempli par les eaux.
+Le plus ancien sanctuaire des Muses, celui de _Libethrion_,* était situé sur les pentes orientales du mont Olympe. Le nom donné à ce sanctuaire indique qu'il était au milieu d'un pays arrosé et coupé de nombreux ruisseaux.* Les eaux torrentueuses qui descendent de l'Olympe ont en effet, autrefois comme aujourd'hui, donné un nom à ce canton. Les Grecs modernes l'appellent _Canalia_, mot qui traduit exactement l'ancienne dénomination : τὰ λείβηθρα. Ce sont des gorges sauvages, des ravins étroits et profonds, déchirés par les torrents qui roulent avec fracas des pentes supérieures de la montagne ; dans ces profondeurs humides, une puissante végétation est entretenue par l'eau, et de grands sapins s'en élancent pour aller chercher en haut le ciel et la lumière. Bien que la mer et les vastes horizons ne soient pas loin, ici on est enfermé, emprisonné dans une nature sauvage ; on n'y entend que la voix des eaux, les murmures de la forêt, ou la foudre de Jupiter qui tonne sur les sommets. C'est ici que descendaient les Muses, quittant la demeure de leur père, et plus d'une fois sans doute les Piériens qui s'approchaient de cette solitude crurent surprendre la voix même des déesses dans les bruits tour à tour éclatants et harmonieux des torrents. Un autre sanctuaire, celui de _Pimpleia_, leur était également consacré en Piérie. Strabon le place dans le canton de _Dion_, pays humide, aujourd'hui marécageux, revêtu d'épais taillis : le nom de ce sanctuaire* semble indiquer qu'il était placé près d'une source abondante qui se versait dans un bassin profond, toujours rempli par les eaux.
 
 *) Pausan. 9, 34, 4 ; Strab. 9, 2, p. 352. Voir le savant travail de M. Heuzey, sur _le mont Olympe_, p. 95.
 
-*) Le mot [GREEK], qui désigne un canal ou un ruisseau, dérive de la racine [GREEK], d'où le verbe [GREEK], les substantifs [GREEK], _etc._ Voir G. Curtius, _Grundzüge der griech. Etym._, p. 328.
+*) Le mot λείβηθρον, qui désigne un canal ou un ruisseau, dérive de la racine λιβ, d'où le verbe λείβ-ω, les substantifs λιβάς, λιβάδιον, _etc._ Voir G. Curtius, _Grundzüge der griech. Etym._, p. 328.
 
-*) De [GREEK] _Pimpleia_ veut donc dire au propre : la source _pleine_.
+*) De πίμπλημι. _Pimpleia_ veut donc dire au propre : la source _pleine_.
 
 La colonie piérienne qui vint s'établir en Béotie, y apporta avec elle l'habitude d'honorer les Muses près des cours d'eaux et des fontaines. Le souvenir de la patrie qu'elle avait quittée lui fit donner le nom de Libethrion à cette partie de la chaîne de l'Hélicon qui est voisine de Coronée, et là, près de deux sources « qui ressemblent à des mamelles de femme et versent une eau douce comme le lait, » fut établi un culte des Muses _Libethrides_, qui était encore en vigueur à l'époque de Pausanias.* Dans la partie de l'Hélicon spécialement consacrée aux Muses, en face d'Ascra, jaillissent de nombreuses sources et courent plusieurs ruisseaux : on connaît les noms d'Hippocrène, d'Aganippe, du Permesse, de l'Olmée ; les ruines du sanctuaire des Muses se voient encore aujourd'hui sur les deux rives d'un torrent.* A Corinthe, la source de Pégase, Pirène, était consacrée aux Muses.* A Trézène, enfin, ces divinités étaient honorées sous le nom de Muses _ardalides_, épithète dont le sens est le même que celui de _libethrides_.* Les sanctuaires des Muses étaient donc toujours placés dans le voisinage des sources ou des ruisseaux. Il semble raisonnable d'en conclure que les Muses furent primitivement des divinités des eaux, et qu'en plus d'un endroit de la Grèce elles eurent cette signification pour le peuple. Cette première vraisemblance, tirée de la topographie et de l'étymologie, a besoin d'être confirmée par d'autres témoignages.
 
@@ -224,7 +224,7 @@ La colonie piérienne qui vint s'établir en Béotie, y apporta avec elle l'habi
 
 *) Pers. _Sat. Prol._ 4 ; Stat. _Sylv._ 2, 7, 1.
 
-*) Plut. _Moral._ p. 150 a ; Pausan. 2, 31, 3. --- Du verbe [GREEK], mouiller, arroser. Plutarque et Pausanias expliquent ce mot en supposant que le culte des Muses a été établi à Trézène par un certain Ardalos, inventeur de la flûte. Ce procédé commode d'étymologie est trop fréquent chez les écrivains grecs pour qu'il soit nécessaire de s'y arrêter. D'après Pausanias, Ardalos était fils d'Héphaestos, dont le culte à Trézène s'explique par la nature volcanique des côtes de l'Argolide. Héphaestos était également honoré à Epidaure (_Corp. Inscr._ 1179).
+*) Plut. _Moral._ p. 150 a ; Pausan. 2, 31, 3. --- Du verbe ἄρδω, mouiller, arroser. Plutarque et Pausanias expliquent ce mot en supposant que le culte des Muses a été établi à Trézène par un certain Ardalos, inventeur de la flûte. Ce procédé commode d'étymologie est trop fréquent chez les écrivains grecs pour qu'il soit nécessaire de s'y arrêter. D'après Pausanias, Ardalos était fils d'Héphaestos, dont le culte à Trézène s'explique par la nature volcanique des côtes de l'Argolide. Héphaestos était également honoré à Epidaure (_Corp. Inscr._ 1179).
 
 Un passage de Tzetzès* nous apprend qu'Eumélos de Corinthe reconnaissait trois Muses, filles d'Apollon, auxquelles il donnait les noms de _Céphisso_, _Apollonide_ et _Borysthénide_. Sans doute on ne peut affirmer que cette citation d'Eumélos soit authentique ; car, dès l'antiquité, les ouvrages attribués à ce poète soulevaient les doutes de la critique.* Mais, en supposant que le texte cité par Tzetzès dérive d'une source moins ancienne qu'Eumélos, il mérite cependant de fixer l'attention : deux de ces Muses en effet portent des noms de fleuves. Peut-être même, comme le propose God. Hermann, faut-il lire _Achéloïde_ au lieu d'_Apollonide_.* Cette citation nous reporte donc à un culte primitif des Muses sur les rives du Borysthène, de l'Achéloüs et du Céphise ; ou bien, si ces noms sont dus à la fantaisie du poète, ils n'en attestent pas moins la parenté qui unissait le culte des Muses à celui des divinités fluviales.
 
@@ -241,7 +241,7 @@ Un témoignage encore plus précis est emprunté à la comédie d'Epicharme qui 
 
 *) _Comment. sur les Œuvres et les jours_, p. 6.
 
-*) A [GREEK] God. Hermann substitue [GREEK]. Cf. Epicharm. _Fragm._ p. 39, éd. Krusemann.
+*) A Τιτόπλουν God. Hermann substitue Πακτωλοῦν. Cf. Epicharm. _Fragm._ p. 39, éd. Krusemann.
 
 *) L'Heptaporos et Rhodia sont cités par Homère (_Iliad._ 12, 20) au nombre des fleuves qui descendent des montagnes de l'Ida. Ils sont aussi nommés dans la Théogonie (v. 341).
 
@@ -280,7 +280,7 @@ C'est à la même conception qu'il faut en partie rapporter l'association des Mu
 
 *) C'est dans un sens différent, comme nous le verrons plus loin, que Dionysos était quelquefois considéré comme dieu _Musagète_.
 
-*) N° 52 de notre _Recueil d'Inscr. béot. inéd._ D'après une inscription du _Corpus_ (n° 1212, l. 13-14) un artiste vainqueur consacre sa couronne aux Muses Héliconiennes et à Dionysos Cadméen. --- En Piérie, le culte de Dionysos était également associé à celui des Muses. Eurip. Bacch. 565 : [GREEK]. Cf. Conon, 45.
+*) N° 52 de notre _Recueil d'Inscr. béot. inéd._ D'après une inscription du _Corpus_ (n° 1212, l. 13-14) un artiste vainqueur consacre sa couronne aux Muses Héliconiennes et à Dionysos Cadméen. --- En Piérie, le culte de Dionysos était également associé à celui des Muses. Eurip. Bacch. 565 : Μάκαρ ὦ Πιερία, σέβεται σ᾽ Εΰιος. Cf. Conon, 45.
 
 *) Pausan, 9, 33, 1.
 
@@ -290,11 +290,11 @@ C'est à la même conception qu'il faut en partie rapporter l'association des Mu
 
 *) _Schol. Arat._ 172.
 
-*) De Is. et Osirid. cap. 34 ; cf. Suidas ; Photius, v. [GREEK].
+*) De Is. et Osirid. cap. 34 ; cf. Suidas ; Photius, v. Ὕης.
 
 A la même idée se rattachent les rapports des Muses avec les Sirènes. La légende qui nous fait assister à la lutte de ces divinités dans le canton d'Aptera* témoigne de la communauté d'attributions qui les unissait. Elles avaient également en partage le don des chants harmonieux ; elles étaient également des génies des eaux. Quand le culte des Muses fut apporté du continent dans l'île de Crète, il se trouva en présence d'une croyance analogue. De là une lutte où les Muses furent victorieuses, c'est-à-dire où leur religion parvint à s'établir en Crète et à remplacer celle des Sirènes. Celles-ci conservèrent le don du chant ; mais en abandonnant le continent pour devenir des Muses de la mer, elles se changèrent en génies malfaisants, habitant les côtes escarpées et les écueils où elles attiraient les vaisseaux par leurs chants ; l'imagination grecque les avait reléguées sur les côtes de la Sicile et de la Grande-Grèce. La tradition crétoise prévalut dans la croyance générale, et l'on rencontre chez les écrivains grecs de fréquentes allusions au combat des Muses et des Sirènes.* Quelquefois cependant les rapports de ces divinités, au lieu de revêtir la forme d'une opposition et d'une hostilité mythologique, s'expriment au contraire par des liens d'union et de parenté. Plusieurs mythographes font naître les Sirènes de l'union d'Achéloüs, soit avec Melpomène, soit avec Terpsichore* ; et certaines versions de la légende de l'enlèvement de Perséphone représentent les Sirènes jouant avec la déesse dans les prairies d'Achéloüs. Elles sont alors de véritables nymphes fluviales, en relation intime avec les Muses.
 
-*) Pausan. 9, 34, 3 ; Steph. Byz. [GREEK] ; Eustath. p. 85, 36.
+*) Pausan. 9, 34, 3 ; Steph. Byz. Ἄπτερα ; Eustath. p. 85, 36.
 
 *) Voir, entre autres, Plutarch. _Symp._ 7, 5, 4 ; 9, 14, 5-6.
 
@@ -302,9 +302,9 @@ A la même idée se rattachent les rapports des Muses avec les Sirènes. La lég
 
 Faut-il donc penser, d'après tous ces textes, que dans la croyance antique les Muses se confondaient avec les Nymphes, et que les Grecs n'établirent jamais de distinction essentielle entre ces deux groupes de divinités ? C'est la conclusion extrême qu'ont adoptée Creuzer et Pétersen, en se fondant principalement sur les textes des lexicographes. Or, d'après Hésychius,* Nymphe et Muse sont bien deux mots synonymes ; mais Étienne de Byzance,* Suidas et le Scholiaste de Théocrite* nous apprennent que les Muses portaient le nom de nymphes chez les Lydiens : ce qui implique qu'il n'en était pas de même partout. Il ressort d'ailleurs, des textes mêmes invoqués par Pétersen, que les Lydiens donnaient aux Muses le nom de nymphes, et non aux nymphes celui de Muses.* Ainsi, même en Lydie, le mot nymphe était un terme générique qui comprenait les Muses entre autres divinités ; et là, comme dans le reste de la Grèce, les Muses, sans se confondre avec les Néréides ou les nymphes terrestres, faisaient partie, comme celles-ci, de la grande famille des divinités des eaux.
 
-*) V° [GREEK].
+*) V° Νύμφαι.
 
-*) V° [GREEK].
+*) V° Τόῤῥηβος.
 
 *) Ad. _Theocr._ 7, 92.
 
@@ -340,7 +340,7 @@ La parenté des Muses avec les divinités des eaux explique en partie leur carac
 
 *) Voir les premiers vers des Euménides d'Eschyle. Cf. Plutarch. _De Pyth. orac._, p. 402 c.
 
-*) _Théog._ 233 : [GREEK]. --- Outre les cinquante Néréides, il avait deux fils, dont l'un [GREEK] était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
+*) _Théog._ 233 : Νηρέα δ᾽ ἀψευδέα καὶ ἀληθέα γείνατο Πόντος. --- Outre les cinquante Néréides, il avait deux fils, dont l'un Νερύλλίνος était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
 Une autre divinité marine, Triton, jouissait aussi de la faculté prophétique. Dans le poème d'Apollonius (4, 1552 sqq.), c'est lui qui indique aux Argonautes la sortie du lac Tritonis ; il disparaît en emportant le _trépied d'Apollon_ qui lui a été offert.
 
 *) _Odyss._ 4, 350 sqq. --- Cf. l'imitation de Virgile (_Georg._ 4, 392) :  
@@ -353,8 +353,10 @@ _« Quæ sint, quæ fuerint, quæ mox ventura trahuntur. »_
 
 Les génies qui habitaient les sources et les fontaines furent aussi considérés de bonne heure comme capables d'instruire l'homme sur l'avenir et de lui inspirer une science divine. Les nymphes des eaux eurent leurs oracles, antérieurs peut-être à celui d'Apollon, et dont le crédit dut se conserver assez longtemps dans quelques parties de la Grèce. Sur le mont Cithéron, au-dessus de Platée, était un antre des _Nymphes Sphragitides_ : là, suivant Plutarque et Pausanias, il y avait primitivement un _mantéion_ où se rendaient les habitants du pays ; à peine avaient-ils pénétré dans l'antre qu'ils étaient possédés par les génies du lieu et prédisaient l'avenir. On donnait à ces inspirés des nymphes le nom de _nympholeptes_.* Les prophéties du devin béotien Bacis passaient pour avoir été dictées par les nymphes.* « Habitantes des antres, nourries par le souffle de la terre, les nymphes ont fait jaillir les sources des eaux inspiratrices pour l'oracle divin de la Muse.* »
 
-*) Plut. _Arist._ 2, 4 ; Pausau. 9, 5, 3. Cf. _Corp. Inscr._ 456 : [GREEK].  
-Ces inspirés étaient quelquefois désignés par le mot [GREEK] (Poll. _Onom._ 1, 1, 19).
+*) Plut. _Arist._ 2, 4 ; Pausau. 9, 5, 3. Cf. _Corp. Inscr._ 456 :  
+Ἀρχέδημος ὁ Φηραῖος ὁ νυμφόληπτος  
+φραδαῖσι Νυμφῶν τὸ ἄντρον ἐξηργήσατο.  
+Ces inspirés étaient quelquefois désignés par le mot μουσόληπτος (Poll. _Onom._ 1, 1, 19).
 
 *) _Schol. ad. Aristoph. Pac._ 1071 ; Tzetzès ad. _Lycophr._ 1276. Bacis, comme le nom l'indique, n'est probablement qu'un personnage fictif.
 
@@ -362,13 +364,13 @@ Ces inspirés étaient quelquefois désignés par le mot [GREEK] (Poll. _Onom._ 
 
 Il y a une telle ressemblance entre les nymphes prophétiques des eaux et les Muses elles-mêmes, qu'on peut presque les identifier. Les rapports des Muses avec la divination* sont d'ailleurs attestés par plusieurs textes. « Elles m'ont inspiré, dit Hésiode,* une voix divine pour chanter _ce qui sera_ et ce qui a été. » --- « Rends tes oracles, ô Muse, disait Pindare,* et je serai ton prophète. » Suivant Plutarque, la première sibylle provenait de l'Hélicon, où elle avait été nourrie par les Muses.* A Delphes, elles étaient considérées comme les assistantes et les gardiennes de l'oracle.* Dans les _Argonautiques_, ce sont elles qui enseignent la divination à Aristée.* Tant que la Pythie et les prêtres exprimèrent les oracles en vers, les Muses purent être considérées comme la source de leur inspiration ; il n'en fut plus de même quand les devins perdirent le langage poétique.* Le caractère divinatoire des Muses s'explique d'ailleurs aussi bien par leur union avec Apollon que par leur association avec les divinités des eaux, et rien ne permet d'affirmer qu'il y eut jamais dans l'antiquité grecque des oracles directs des Muses. La confusion entre la poésie et la divination, dont on trouve quelques traces dans les textes antiques, a son origine dans les poésies orphiques et n'appartient point, par conséquent, aux temps primitifs de la Grèce.* Dans Homère, prêtres, devins et poètes, sont des personnages qui remplissent des rôles tout à fait différents. Cette distinction paraît s'être maintenue à toutes les époques. Apollon devint de bonne heure le dieu des oracles par excellence,* et il ne partagea plus avec les Muses que les attributions de l'inspiration poétique et musicale.*
 
-*) M. Guédéonof (_Ann. Inst. Arch._ 1852) a faussement conclu du caractère divinatoire des Muses à leur sens fatal primitif. Le Proœmium de la Théogonie, qu'il invoque comme autorité, témoigne seulement de l'esprit prophétique inspiré par les Muses à leurs initiés. Il est impossible d'assimiler, comme il le fait, les Muses aux Moires : celles-ci donnent aux hommes le bien et le mal, mais elles ne leur révèlent nullement l'immuable avenir. » [GREEK], dit Plutarque (_Symp._ 9, 14, p. 745, d).
+*) M. Guédéonof (_Ann. Inst. Arch._ 1852) a faussement conclu du caractère divinatoire des Muses à leur sens fatal primitif. Le Proœmium de la Théogonie, qu'il invoque comme autorité, témoigne seulement de l'esprit prophétique inspiré par les Muses à leurs initiés. Il est impossible d'assimiler, comme il le fait, les Muses aux Moires : celles-ci donnent aux hommes le bien et le mal, mais elles ne leur révèlent nullement l'immuable avenir. » Ἄμουσον γὰρ ἡ Ἀνάγκη, dit Plutarque (_Symp._ 9, 14, p. 745, d).
 
 *) _Théog._ v. 32.
 
-*) _Fragm._ n° 127, _Lyr. Gr._ Bergk. --- C'est une locution métaphorique qui se retrouve dans un autre fragment (n° 67) de Pindare : [GREEK].
+*) _Fragm._ n° 127, _Lyr. Gr._ Bergk. --- C'est une locution métaphorique qui se retrouve dans un autre fragment (n° 67) de Pindare : ἀοίδιμον Πιερίδων προφάταν.
 
-*) _De Pyth. orac._ p. 398, c. La Sibylle appartient également au règne des eaux, comme l'indique le nom d'_Hydolè_, femme des eaux, donné à sa mère (Suidas, v. [GREEK].)
+*) _De Pyth. orac._ p. 398, c. La Sibylle appartient également au règne des eaux, comme l'indique le nom d'_Hydolè_, femme des eaux, donné à sa mère (Suidas, v. Σίβυλλα.)
 
 *) _Ibid._ p. 402, c.
 
