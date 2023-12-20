@@ -6,3 +6,4 @@ English - Plain Text
 English - PDF  
 
 Hemp_paper_in_Japan-canna7.jpeg --- CC BY-SA 4.0 Solar Anamnesis; modified attribution タバコはマーダー, CC BY-SA 4.0, via Wikimedia Commons, Gustave Moreau Public Domain.
+blackandwhiteborder1.png --- CC BY-SA 4.0 Solar Anamnesis; modified attribution Cherubini, Luigi - Medea - Restoration Public Domain via Wikimedia Commons.
