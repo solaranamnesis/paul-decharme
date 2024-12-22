@@ -111,7 +111,7 @@ La triade des Muses se rencontra sur le sol de la Béotie avec la triade des Cha
 
 *) V. O. Müller, _Orchom._, pag. 177 et suiv.
 
-*) Hymn. hom. _à Artémis_, v. 15-20. Cf. _Théogon._ 64 : πὰρ δ᾽ αὐτῇς Χάριτες ... Pindare invoque quelquefois les Charites à la place des Muses (_Nem._ 10, 1).
+*) Hymn. hom. _à Artémis_, v. 15-20. Cf. _Théogon._ 64 : πὰρ δ' αὐτῇς Χάριτες ... Pindare invoque quelquefois les Charites à la place des Muses (_Nem._ 10, 1).
 
 *) Pind. _Olymp._ 14, 9-10.
 
@@ -133,7 +133,7 @@ Le nombre neuf, généralement assigné aux Muses, s'explique par l'union intime
 
 *) Ces fêtes duraient neuf jours ; on dressait autour de la ville des tentes de feuillage au nombre de neuf, _etc._ (Athen. 4, 19).
 
-*) Phérécydès de Syros, ap. _Strab._ 10, 472 : Φερεκύδης δ᾽ ἐξ Ἀπόλλωνος καὶ Ῥυτίας Κορύβαντας ἐννέα. D'après une tradition postérieure (Apollod. 1, 3, 4) les Corybantes étaient nés de Thalie et d'Apollon. On connaît les rapports de Corybas, divinité solaire, avec Apollon (Maury, _Relig. de la Grèce._, 1, 199).
+*) Phérécydès de Syros, ap. _Strab._ 10, 472 : Φερεκύδης δ' ἐξ Ἀπόλλωνος καὶ Ῥυτίας Κορύβαντας ἐννέα. D'après une tradition postérieure (Apollod. 1, 3, 4) les Corybantes étaient nés de Thalie et d'Apollon. On connaît les rapports de Corybas, divinité solaire, avec Apollon (Maury, _Relig. de la Grèce._, 1, 199).
 
 *) Varron (ap. August. _De Doct. Christ._ 2, 17) racontait une anecdote inventée par les Grecs pour expliquer le nombre neuf des Muses. Les habitants d'une cité, voulant consacrer dans le temple d'Apollon les statues des trois Muses, avaient mis ces statues au concours entre trois artistes. Les groupes une fois achevés se trouvèrent être d'une égale beauté. La ville, ne sachant à qui donner la préférence, se décida à acheter les neuf statues et à en orner son sanctuaire d'Apollon. De là vint l'habitude de représenter les Muses au nombre de neuf.
 
@@ -166,7 +166,7 @@ La généalogie donnée par Hésiode aux Muses, filles de Jupiter et de Mnémosy
 *) Diodor. 4, p. 150 b. Cf. Mnaséas ap. _Arnob._ 3, 37 ; _Schol. Pind. Nem._ 3, 16.
 
 *) Cette généalogie se retrouve dans une épigramme d'Antipater de Thessalonique (_Anthol. Jacobs._, 9, 26, v. 9-10) :  
-Ἐννέα μὲν Μούσας μέγας οὐρανός · ἐννέα δ᾽ αὐτὰς  
+Ἐννέα μὲν Μούσας μέγας οὐρανός · ἐννέα δ' αὐτὰς  
 Γαῖα τέκεν, θνατοῖς ἄφθιτον εὐφροσύναν.
 
 *) Hygin, _Fab._ 1, p. 11, éd. Scheffer ; Cic _De N. D._, 3, 21, 54.
@@ -281,7 +281,7 @@ C'est à la même conception qu'il faut en partie rapporter l'association des Mu
 
 *) C'est dans un sens différent, comme nous le verrons plus loin, que Dionysos était quelquefois considéré comme dieu _Musagète_.
 
-*) N° 52 de notre _Recueil d'Inscr. béot. inéd._ D'après une inscription du _Corpus_ (n° 1212, l. 13-14) un artiste vainqueur consacre sa couronne aux Muses Héliconiennes et à Dionysos Cadméen. --- En Piérie, le culte de Dionysos était également associé à celui des Muses. Eurip. Bacch. 565 : Μάκαρ ὦ Πιερία, σέβεται σ᾽ Εΰιος. Cf. Conon, 45.
+*) N° 52 de notre _Recueil d'Inscr. béot. inéd._ D'après une inscription du _Corpus_ (n° 1212, l. 13-14) un artiste vainqueur consacre sa couronne aux Muses Héliconiennes et à Dionysos Cadméen. --- En Piérie, le culte de Dionysos était également associé à celui des Muses. Eurip. Bacch. 565 : Μάκαρ ὦ Πιερία, σέβεται σ' Εΰιος. Cf. Conon, 45.
 
 *) Pausan, 9, 33, 1.
 
@@ -341,7 +341,7 @@ La parenté des Muses avec les divinités des eaux explique en partie leur carac
 
 *) Voir les premiers vers des Euménides d'Eschyle. Cf. Plutarch. _De Pyth. orac._, p. 402 c.
 
-*) _Théog._ 233 : Νηρέα δ᾽ ἀψευδέα καὶ ἀληθέα γείνατο Πόντος. --- Outre les cinquante Néréides, il avait deux fils, dont l'un Νερύλλίνος était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
+*) _Théog._ 233 : Νηρέα δ' ἀψευδέα καὶ ἀληθέα γείνατο Πόντος. --- Outre les cinquante Néréides, il avait deux fils, dont l'un Νερύλλίνος était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
 Une autre divinité marine, Triton, jouissait aussi de la faculté prophétique. Dans le poème d'Apollonius (4, 1552 sqq.), c'est lui qui indique aux Argonautes la sortie du lac Tritonis ; il disparaît en emportant le _trépied d'Apollon_ qui lui a été offert.
 
 *) _Odyss._ 4, 350 sqq. --- Cf. l'imitation de Virgile (_Georg._ 4, 392) :  
@@ -601,7 +601,7 @@ L'ἐγκώμιον est, d'après Bœckh, une composition lyrique qui se disting
 
 Les solennités des Muses n'étaient pas accompagnées partout de ces jeux et de ces concours réguliers : les Μουσεῖα de l'Hélicon nous sont seuls connus. Mais ailleurs les fêtes des déesses servaient d'occasion à des luttes d'un genre différent, à des conversations et des discussions littéraires où prenaient part les hommes les plus distingués, et où aimait à se jouer la subtilité des esprits grecs. Au temps de Plutarque,* les hommes de lettres et les artistes réunis à la même table, aux fêtes des Muses d'Athènes, avaient coutume de se proposer, après boire, la solution d'un certain nombre de questions de littérature et d'érudition. Le neuvième livre des _Propos de table_ reproduit plusieurs de ces discussions. Sans doute quelques-uns des sujets proposés peuvent nous faire sourire aujourd'hui, et l'on s'étonne de voir les amis de Plutarque dépenser tant d'esprit sur des questions si minces. Ce sont conversations raffinées et subtiles ; ce sont propos de rhéteurs, si l'on veut, mais de rhéteurs qui ont encore souci de la dignité des lettres et qui honorent les Muses en faisant assaut d'érudition et de beau langage.
 
-*) _Symp._ 9, Proœm. Τὸ ἔννατον τῶν Συμποσιακῶν ... περιέχει λόγους τοὺς Ἀθήνησιν ἐν τοῖς Μουσείοις γενομένους. _Ibid. Quæst._ 2 : ἔθους δ᾽ ὄντος ἐν τοῖς Μουσείοις κλήρους περιφέρεσθαι καὶ τοὺς συλλαχόντας ἀλλήλοις προτείνειν φιλόλογα ζητήματα.
+*) _Symp._ 9, Proœm. Τὸ ἔννατον τῶν Συμποσιακῶν ... περιέχει λόγους τοὺς Ἀθήνησιν ἐν τοῖς Μουσείοις γενομένους. _Ibid. Quæst._ 2 : ἔθους δ' ὄντος ἐν τοῖς Μουσείοις κλήρους περιφέρεσθαι καὶ τοὺς συλλαχόντας ἀλλήλοις προτείνειν φιλόλογα ζητήματα.
 
 C'est également à la religion de ces déesses que se rattache la grande institution littéraire et scientifique fondée en Égypte par la munificence des Ptolémées. Le Musée d'Alexandrie, avec son jardin, son _exèdre_, ses vastes et somptueux bâtiments, faisait partie du palais même des rois égyptiens. Là, les membres de cette société, ou plutôt de cette communauté savante, se réunissaient et prenaient leurs repas ensemble ; ils avaient aussi un trésor commun. Un prêtre, nommé d'abord par les Ptolémées, plus tard par les Césars, était attaché à ce noble établissement : il était chargé du culte des Muses, qui avaient leur sanctuaire dans le palais.*
 
@@ -728,11 +728,11 @@ La cithare est l'attribut d'_Érato_* comme celui de Terpsichore : il est facile
 *) Voir Panofka, _Terres cuites_, pl. 41, 2.
 
 *) Apollonius attribue à Érato le rôle de Vénus :  
-Εἰ δ᾽ ἄγε νῦν, Ἐρατὼ, παρὰ δ᾽ ἴστασο, καί μοι ἔνιστπε  
+Εἰ δ' ἄγε νῦν, Ἐρατὼ, παρὰ δ' ἴστασο, καί μοι ἔνιστπε  
 ἔνθεν ὅπως ἐς Ἰωλκὸν ἀνήγαγε κῶας Ἰήσων  
-Μηδείης ὑπ᾽ ἔρωτι. Σὺ γὰρ καὶ Κύπριδος αἶσαν  
+Μηδείης ὑπ' ἔρωτι. Σὺ γὰρ καὶ Κύπριδος αἶσαν  
 ἔμμορες, ἀδμῆτας δὲ τεοῖς μελεδήμασι θέλγεις  
-παρθενικὰάς · τῷ καί τοι ἐπήρατον οὔνομ᾽ ἀνήπται.
+παρθενικὰάς · τῷ καί τοι ἐπήρατον οὔνομ' ἀνήπται.
 
 *) Æn. 7 ; 37 : _Nunc age qui reges, Erato, quæ tempora rerum._
 
@@ -824,7 +824,7 @@ Chaque école philosophique interprète les Muses suivant son système. Les Pyth
 
 *) Plutarch. _Symp._ p. 745 c. Cf. Cornut. cap. 17, p. 49. Cette idée de l'union des Muses avec les sphères célestes se trouve reproduite chez les Platoniciens de la Renaissance (Mars. Ficin. _De Immort. Anim. sive. de Theol. Platon._ 4, cap. 1, p. 131).
 
-*) Maxim. Tyr. _Dissert_, 16, p. 189, éd. Davis : ἡ δ᾽ ἐῤῥωμένη ψυχὴ ... μνήμην ἐγείρει ἐκείνων τῶν θεαμάτων καὶ ἐκείνων τῶν ἀκουσμάτων. Τοῦτο ἄρα καὶ οἱ ποιηταὶ τὴν Μνημοσύνην αἰνίττονται Μουσῶν μητέρα, Μούσας μὲν τὰς ἐπιστήμας ὀνομάζοντες ... ὑπὸ Μνημοτύνης καὶ γεννωμένας καὶ συνταττομένας.
+*) Maxim. Tyr. _Dissert_, 16, p. 189, éd. Davis : ἡ δ' ἐῤῥωμένη ψυχὴ ... μνήμην ἐγείρει ἐκείνων τῶν θεαμάτων καὶ ἐκείνων τῶν ἀκουσμάτων. Τοῦτο ἄρα καὶ οἱ ποιηταὶ τὴν Μνημοσύνην αἰνίττονται Μουσῶν μητέρα, Μούσας μὲν τὰς ἐπιστήμας ὀνομάζοντες ... ὑπὸ Μνημοτύνης καὶ γεννωμένας καὶ συνταττομένας.
 
 *) C'est l'interprétation que donnait déjà Anaximènes de Lampsaque, un des historiens qui accompagnèrent Alexandre. Elle se trouve développée chez Fulgence (_Mythol._ 1, 14) : « Huic etiam Apollini novem deputant Musas ipsumque decimum Musis adjiciunt ; illa videlicet causa, quod _humanæ vocis decem sint modulamina_ ... Fit ergo vox quatuor dentibus econtra positis, quos lingua percutit : e quibus si unus minus fuerit, sibilum potius quam vocem reddat necesse est. Duo labia, velut cymbala, verborum commoda modulantia : lingua est plectrurn quæ curvamine quodam vocalem format spiritum : palatum, cujus concavitas profert sonum ; gutturis fistula quæ tereti meatum spiritalem præbet excursu ; et pulmo, qui velut aerius follis concepta reddit ac revocat. --- Habes ergo Musarum novem vel Apollinis ipsius redditam rationem, sicut in libris suis Anaximander ? (_Anaximenes_, d'après la correction de M. Rossignol, _Rev. de Philol._ 2) Lampsacenus et Zenophanes Heracleopolites exponunt. »
 
@@ -926,7 +926,7 @@ Quant aux nombreuses images de ces divinités que nous offrent les bas-reliefs, 
 
 2° Au même endroit, sur la base d'une statue de Terpsichore :  
 [Κ]ισσὸς Τερψιχόρῃ Βρομίῳ δὲ πρε[πῶδες ἄγαλμα ? ],  
-Τῇ μὲν ἵν᾿ ἔνθεος ᾖ, τῷ δ᾽ ἵνα τερπν[ὰ φέρῃ ? ].
+Τῇ μὲν ἵν᾿ ἔνθεος ᾖ, τῷ δ' ἵνα τερπν[ὰ φέρῃ ? ].
 
 « Le lierre est un ornement qui convient et à Terpsichore et à Bromios ; à l'une pour qu'elle soit inspirée, à l'autre (pour qu'une douce joie l'anime ? ). »
 
