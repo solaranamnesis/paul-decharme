@@ -334,7 +334,8 @@ Fin.
 [^1]: Des extraits de ce dernier se trouvent dans les _Comm. soc. philol._ de Leipsick, tom. 3, pag. 43 et suiv.
 [^2]: _Opuscul._ 2, pag. 288. Cf., Ch. Lenormant, _Élite des monuments céramographiques_, tom. 2, pag. 251.
 [^3]: Cet article a pour titre : _Mythologische Vorstellung der Musen_ (_Mythol._ 1, pag. 275 sqq.).
-[^4]: G. Curtius (_Grundzüge der Griech. Etym._, pag. 280) le rattache au radical sanscrit _man_, en grec μεν ou μαν, d'où μέν-ος, μαν-ία, μέ μον α, _etc._ D'après la forme dorienne Μῶσα la forme éolienne Μοῖσα, Μοῦσα viendrait de Μονσα = Μοντια. Lottner (_Zeitschr._ 6, 109 sqq.) considère ce mot comme équivalent à μάντι-ς ( = μαντι-α). Suivant Th. Bergk (_Lyr. Gr. ad. Pind. Olymp._ 1, v. 15), le nom des Muses vient du mot Lydien μωΰς (_Hésych._ μωῢ, ἡ γῆ, Λυδοί ; lisez πηγή) ou μῶῡ (_Hés._ μῶῡ · τὸ ὕδωρ). --- M. Egger incline à le faire dériver de μῦθος (μοῦθος, fém. μου-θ-α ou μου-σ-α) ; M. Maury (_Relig. de la Grèce_, 2. 476) de μάω, avec le sens d'agitation et de transport prophétique. Mentionnons les étymologies antiques : celle de Platon dans le _Cratyle_, pag. 406, a : τὰς Μούσας τε καὶ ὅλως τὴν μουσικὴν ἀπὸ τοῦ μῶσθαι ; celle de Cornutus (_De Nat. D._ 14, pag. 43) : ἀπὸ τῆς μώσεως, τουτέστι ζητήσεως ; celle de Diodore (4. pag. 150, c.) : ἀπὸ τοῦ μυεῖν τοὺς ἀνθρώπους et la singulière explication de Plutarque (_Moral._ 1, 582, 51) qui fait dériver Μοῦσαι de ὅμου οὖσαι. --- L'explication du stoïcien Cornutus est reproduite par Suidas, v° Μοῦσα · ἡ γνῶσις ἀπὸ τοῦ μῶ, τὸ ζητῶ.
+[^4]: G. Curtius (_Grundzüge der Griech. Etym._, pag. 280) le rattache au radical sanscrit _man_, en grec μεν ou μαν, d'où μέν-ος, μαν-ία, μέ μον α, _etc._ D'après la forme dorienne Μῶσα la forme éolienne Μοῖσα, Μοῦσα viendrait de Μονσα = Μοντια. Lottner (_Zeitschr._ 6, 109 sqq.) considère ce mot comme équivalent à μάντι-ς ( = μαντι-α). Suivant Th. Bergk (_Lyr. Gr. ad. Pind. Olymp._ 1, v. 15), le nom des Muses vient du mot Lydien μωΰς (_Hésych._ μωῢ, ἡ γῆ, Λυδοί ; lisez πηγή) ou μῶῡ (_Hés._ μῶῡ · τὸ ὕδωρ). --- M. Egger incline à le faire dériver de μῦθος (μοῦθος, fém. μου-θ-α ou μου-σ-α) ; M. Maury (_Relig. de la Grèce_, 2. 476) de μάω, avec le sens d'agitation et de transport prophétique.  
+    Mentionnons les étymologies antiques : celle de Platon dans le _Cratyle_, pag. 406, a : τὰς Μούσας τε καὶ ὅλως τὴν μουσικὴν ἀπὸ τοῦ μῶσθαι ; celle de Cornutus (_De Nat. D._ 14, pag. 43) : ἀπὸ τῆς μώσεως, τουτέστι ζητήσεως ; celle de Diodore (4. pag. 150, c.) : ἀπὸ τοῦ μυεῖν τοὺς ἀνθρώπους et la singulière explication de Plutarque (_Moral._ 1, 582, 51) qui fait dériver Μοῦσαι de ὅμου οὖσαι. --- L'explication du stoïcien Cornutus est reproduite par Suidas, v° Μοῦσα · ἡ γνῶσις ἀπὸ τοῦ μῶ, τὸ ζητῶ.
 [^5]: Calliope était la mère d'Orphée (V. Schol. _Apoll. Rhod._ 1, 23 ; _Hymn. Orph._ aux Muses, v. 10 ; Apollod. 1, 3, 2 ; Maxim. Tyr. _Dissert._ 37, pag. 439, éd. Davis). De même Ialemos et Hymenaeos étaient fils d'Apollon et de Calliope (_Schol. Pind. Pyth._, 4, 313).
 [^6]: Ce sont les Thraces, d'après Strabon (10, 3, pag. 404 ; cf. 9, 2, pag. 352, Bibl. Didot) qui ont consacré l'Hélicon aux Muses.
 [^7]: Le nom du sanctuaire de Libethrion fut transporté par les Thraces, autrement dit Piériens, en Béotie, où la chaîne de l'Hélicon près de Coronée portait le nom de mont Libethrion (Pausan, 9, 34, 4 ; Strab. 9, 2, pag. 352).
@@ -342,7 +343,9 @@ Fin.
 [^9]: _Iliad._ 2, 594, sqq. Hésiode (ap. _Steph. Byz._ v° Δώτιον) plaçait le théâtre de cette légende dans la plaine de Dotis. Sur le même sujet, voir : _Cycl. Fragm._, ap. Pausan, 4, 34, 7 ; Strab. 8, 3 ; _Mythogr. Gr._, éd. Westermann, pag. 127-128.
 [^10]: _Iliad._ 1, 604-605.
 [^11]: 11, 218.
-[^12]: _Iliad._ 2, 485-486. Cf. _Æn._ 8, 645 : _Et meministis enim, Divæ, et memorare potestis ;_ _Ad nos vix tennis famæ perlabitur aura._
+[^12]: _Iliad._ 2, 485-486. Cf. _Æn._ 8, 645 :  
+    _Et meministis enim, Divæ, et memorare potestis ;_  
+    _Ad nos vix tennis famæ perlabitur aura._
 [^13]: Homère cite Jupiter comme leur père (_Iliad._ 2, 491 ; _Odyss._ 1, 10 ; 8, 488) ; il ne fait nulle part mention de leur mère. L'hymne homérique à Hermès, v. 429, cite Mnémosyne comme mère des Muses ; mais on sait que cet hymne est très-postérieur à l'Iliade et à l'Odyssée.
 [^14]: Les Muses novénaires se trouvent, il est vrai, citées au vingt-quatrième chant de l'Odyssée (v. 60), mais on s'accorde généralement à considérer ce dernier chant comme beaucoup plus récent que les autres. Voir sur ce sujet, et à propos de ce passage, la dissertation de Spohn : _De extranea Odyss. parte_, pag. 43.
 [^15]: Pausanias (9, 29) tire cette tradition d'une citation de l'_Atthide_ d'Hégésinoos, empruntée à l'ouvrage de Callippos le Corinthien sur les Orchoméniens. Les œuvres d'Hégésinoos étaient perdues du temps de Pausanias.
@@ -373,7 +376,9 @@ Fin.
 [^40]: Pausan. 9, 9, 2. D'après une autre légende de basse époque conservée par Apollodore (1, 3, 5), Clio se serait unie avec Piéros, par l'effet de la colère de Vénus à qui elle avait reproché son amour pour Adonis.
 [^41]: Pausan. 9, 29, 4.
 [^42]: Diodor. 4, p. 150 b. Cf. Mnaséas ap. _Arnob._ 3, 37 ; _Schol. Pind. Nem._ 3, 16.
-[^43]: Cette généalogie se retrouve dans une épigramme d'Antipater de Thessalonique (_Anthol. Jacobs._, 9, 26, v. 9-10) : Ἐννέα μὲν Μούσας μέγας οὐρανός · ἐννέα δ' αὐτὰς Γαῖα τέκεν, θνατοῖς ἄφθιτον εὐφροσύναν.
+[^43]: Cette généalogie se retrouve dans une épigramme d'Antipater de Thessalonique (_Anthol. Jacobs._, 9, 26, v. 9-10) :  
+    Ἐννέα μὲν Μούσας μέγας οὐρανός · ἐννέα δ' αὐτὰς  
+    Γαῖα τέκεν, θνατοῖς ἄφθιτον εὐφροσύναν.
 [^44]: Hygin, _Fab._ 1, p. 11, éd. Scheffer ; Cic _De N. D._, 3, 21, 54.
 [^45]: Les quatre Muses Telxinoè, Aoidè, Archè, Mélétè, étaient, suivant Aratus, filles de Jupiter Æther et de Plusia (Tzetz. ad _Hesiod. Op. et D._ 1).
 [^46]: Cic. _De N. D._, 3, 21.
@@ -399,7 +404,8 @@ Fin.
 [^66]: Plut. _Moral._ p. 150 a ; Pausan. 2, 31, 3. --- Du verbe ἄρδω, mouiller, arroser. Plutarque et Pausanias expliquent ce mot en supposant que le culte des Muses a été établi à Trézène par un certain Ardalos, inventeur de la flûte. Ce procédé commode d'étymologie est trop fréquent chez les écrivains grecs pour qu'il soit nécessaire de s'y arrêter. D'après Pausanias, Ardalos était fils d'Héphaestos, dont le culte à Trézène s'explique par la nature volcanique des côtes de l'Argolide. Héphaestos était également honoré à Epidaure (_Corp. Inscr._ 1179).
 [^67]: Ce passage est extrait du _Comment. sur les Œuvres et les jours_, pag. 6.
 [^68]: Pausanias (4, 33, 3) ne reconnaissait pour authentique, parmi les œuvres attribuées à Eumelos, qu'un _prosodion_ composé pour les Messéniens envoyés en mission sacrée à Délos.
-[^69]: G. Hermann, dans sa dissertation _De Musis fluvialibus Epicharmi et Eumeli_ (Opusc. 2, p. 288 sqq.) suppose qu'il s'agit ici d'un mythe analogue à celui d'Apollon Hyperboréen et ses trois frères, fils de Boréas et de Chioné. Eumélos aurait exprimé la même idée d'une autre façon, en substituant les trois Muses aux trois fils de Boréas et de Chioné. Butmann (_Mythol._ 1, p. 273 sqq.) explique ainsi les trois Muses d'Eumélos : Borysthénis, la Muse du nord, rappelle les origines de la poésie grecque et se rattache aux légendes d'Apollon Hyperboréen, d'Orphée, de Linus, _etc._ ; Apollonis est la Muse olympique ; Képhisso, la vraie Muse grecque.
+[^69]: G. Hermann, dans sa dissertation _De Musis fluvialibus Epicharmi et Eumeli_ (Opusc. 2, p. 288 sqq.) suppose qu'il s'agit ici d'un mythe analogue à celui d'Apollon Hyperboréen et ses trois frères, fils de Boréas et de Chioné. Eumélos aurait exprimé la même idée d'une autre façon, en substituant les trois Muses aux trois fils de Boréas et de Chioné.  
+    Butmann (_Mythol._ 1, p. 273 sqq.) explique ainsi les trois Muses d'Eumélos : Borysthénis, la Muse du nord, rappelle les origines de la poésie grecque et se rattache aux légendes d'Apollon Hyperboréen, d'Orphée, de Linus, _etc._ ; Apollonis est la Muse olympique ; Képhisso, la vraie Muse grecque.
 [^70]: La comédie des Muses, comme nous l'apprend Athénée (3, cap. 75) n'est qu'une édition remaniée des _Noces d'Hébé_.
 [^71]: _Comment. sur les Œuvres et les jours_, p. 6.
 [^72]: A Τιτόπλουν God. Hermann substitue Πακτωλοῦν. Cf. Epicharm. _Fragm._ p. 39, éd. Krusemann.
@@ -441,11 +447,17 @@ Fin.
 [^108]: Notre incompétence ne nous permet pas de pousser plus loin ce rapprochement. Nous devons les indications qui précèdent à l'obligeance de M. Hauvette-Besnault.
 [^109]: _Théog._ v. 37-38.
 [^110]: Voir les premiers vers des Euménides d'Eschyle. Cf. Plutarch. _De Pyth. orac._, p. 402 c.
-[^111]: _Théog._ 233 : Νηρέα δ' ἀψευδέα καὶ ἀληθέα γείνατο Πόντος. --- Outre les cinquante Néréides, il avait deux fils, dont l'un Νερύλλίνος était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre. Une autre divinité marine, Triton, jouissait aussi de la faculté prophétique. Dans le poème d'Apollonius (4, 1552 sqq.), c'est lui qui indique aux Argonautes la sortie du lac Tritonis ; il disparaît en emportant le _trépied d'Apollon_ qui lui a été offert.
-[^112]: _Odyss._ 4, 350 sqq. --- Cf. l'imitation de Virgile (_Georg._ 4, 392) : _« Novit namque omnia vates, »_ _« Quæ sint, quæ fuerint, quæ mox ventura trahuntur. »_
+[^111]: _Théog._ 233 : Νηρέα δ' ἀψευδέα καὶ ἀληθέα γείνατο Πόντος. --- Outre les cinquante Néréides, il avait deux fils, dont l'un Νερύλλίνος était honoré à Alexandria-Troas comme divinité prophétique et médicale (Athenag. p. 107 ; cf. Lobeck, _Aglaoph._ p. 1171). L'autre était _Néritès_, dieu du coquillage qui donne la pourpre.  
+    Une autre divinité marine, Triton, jouissait aussi de la faculté prophétique. Dans le poème d'Apollonius (4, 1552 sqq.), c'est lui qui indique aux Argonautes la sortie du lac Tritonis ; il disparaît en emportant le _trépied d'Apollon_ qui lui a été offert.
+[^112]: _Odyss._ 4, 350 sqq. --- Cf. l'imitation de Virgile (_Georg._ 4, 392) :  
+    _« Novit namque omnia vates, »_  
+    _« Quæ sint, quæ fuerint, quæ mox ventura trahuntur. »_
 [^113]: Voir sur Glaucos la légende d'Anthédon, dans Pausanias (9, 22, 7). Les diverses traditions sur le dieu des marins et des pêcheurs se trouvent réunies dans Athénée (7, p. 147-148). Suivant Nicandre cité par Athenée, Glaucos avait enseigné la _mantique_ à Apollon lui-même.
 [^114]: v. 352 ; 358.
-[^115]: Plut. _Arist._ 2, 4 ; Pausau. 9, 5, 3. Cf. _Corp. Inscr._ 456 : Ἀρχέδημος ὁ Φηραῖος ὁ νυμφόληπτος φραδαῖσι Νυμφῶν τὸ ἄντρον ἐξηργήσατο. Ces inspirés étaient quelquefois désignés par le mot μουσόληπτος (Poll. _Onom._ 1, 1, 19).
+[^115]: Plut. _Arist._ 2, 4 ; Pausau. 9, 5, 3. Cf. _Corp. Inscr._ 456 :  
+    Ἀρχέδημος ὁ Φηραῖος ὁ νυμφόληπτος  
+    φραδαῖσι Νυμφῶν τὸ ἄντρον ἐξηργήσατο.  
+    Ces inspirés étaient quelquefois désignés par le mot μουσόληπτος (Poll. _Onom._ 1, 1, 19).
 [^116]: _Schol. ad. Aristoph. Pac._ 1071 ; Tzetzès ad. _Lycophr._ 1276. Bacis, comme le nom l'indique, n'est probablement qu'un personnage fictif.
 [^117]: Porphyr. _De Antr. Nymph._ 8, p. 8, cite ce passage d'un hymne à Apollon pour établir que les antres étaient consacrés aux nymphes, particulièrement à celles des eaux.
 [^118]: M. Guédéonof (_Ann. Inst. Arch._ 1852) a faussement conclu du caractère divinatoire des Muses à leur sens fatal primitif. Le Proœmium de la Théogonie, qu'il invoque comme autorité, témoigne seulement de l'esprit prophétique inspiré par les Muses à leurs initiés. Il est impossible d'assimiler, comme il le fait, les Muses aux Moires : celles-ci donnent aux hommes le bien et le mal, mais elles ne leur révèlent nullement l'immuable avenir. » Ἄμουσον γὰρ ἡ Ἀνάγκη, dit Plutarque (_Symp._ 9, 14, p. 745, d).
@@ -466,7 +478,9 @@ Fin.
 [^133]: _Odyss._ 8, 63-64.
 [^134]: Plutarch. _De Curiosit._ p. 521, e. Cf. Cornut. (_De N. D._ 14, p. 53, éd. Osann.). La nuit est appelée Euphronè par Sophocle (_Elect._ 19) ; Anaximenes ap. _Diog. Laert._ 2, 4. Cf. Suidas : Ὲυφρόνη, ἡ νύξ.
 [^135]: _Théog._ v. 10 : ἐννύχιαι στεῖχον ...
-[^136]: Une épigramme de l'_Anthologie_ (éd. Jacobs, 9, 64) nous montre Hésiode visité par les Muses dans l'Hélicon, à l'heure de midi : Αὐταὶ ποιμαίνοντα μεσαμβρινὰ μῆλά σε Μοῦσαι Ἔδρακον ἐν κραναοῖς οὔρεσιν, Ἡσίοδε ...
+[^136]: Une épigramme de l'_Anthologie_ (éd. Jacobs, 9, 64) nous montre Hésiode visité par les Muses dans l'Hélicon, à l'heure de midi :  
+    Αὐταὶ ποιμαίνοντα μεσαμβρινὰ μῆλά σε Μοῦσαι  
+    Ἔδρακον ἐν κραναοῖς οὔρεσιν, Ἡσίοδε ...
 [^137]: Pausan. 9, 23, 2.
 [^138]: Les abeilles avaient un certain rapport avec les Muses. « Quand les Athéniens, dit Philostrate (_Imagg._ 8, 5) allèrent coloniser l'Ionie, les Muses servaient de guides à l'expédition sous la forme d'un essaim d'abeilles. » Ces insectes avaient aussi une sorte d'instinct divinatoire. D'après une tradition recueillie par Pausanias (9, 40 a), c'est un essaim d'abeilles qui indiqua à Saon d'Acraephion l'entrée du _Mantéion_ de Trophonios à Lébadée. --- Les _Thries_, nymphes prophétiques du Parnasse (_Hymn. Mercur._ 522-563) mangent des rayons de miel et doivent à cette nourriture la faculté prophétique.
 [^139]: Pausan. 2, 31, 5. La statue d'Hypnos, sous la forme d'un jeune homme debout, accoudé et la tête penchée, a été trouvée à côté des statues des Muses de la villa de Cassius à Tivoli (_Mus. Pio. Cl._ t. 1.).
@@ -479,7 +493,10 @@ Fin.
 [^146]: Peut-être la même représentation se trouve-t-elle sur plusieurs vases peints où l'on croit reconnaître une Muse et Apollon.
 [^147]: _Fragm._ n° 116 (_Lyr. Gr._ Bergk). Pindare lui-même, par une locution métaphorique, se disait fils de la Muse : Ὦ πότνια Μοῖσα, μᾶτερ ἁμετέρα ... (_Nem._ 3, 1).
 [^148]: Dans l'épigramme d'Alcée (_Anth._ Jacobs, 7, n° 55) sur le tombeau d'Hésiode, ce sont les nymphes qui lavent elles-mêmes le corps du poète.
-[^149]: Tel est sans doute le sens d'un vers que nous trouvons à la fin d'une inscription (_C. I._ 6187) gravée sur le tombeau d'un poète musicien : καὶ μετὰ τὸν θάνατον Μοῦσαι μου σῶμα κρατοῦσιν. De même sur un sarcophage antique, aujourd'hui dans la cathédrale de Palerme, se voit un bas-relief des neuf Muses, où l'artiste a eu l'intention évidente d'indiquer que le défunt avait été favorisé des Muses pendant sa vie et instruit par elles. Sur ce bas-relief, voir un article de Wieseler dans les _Annal. Inst. Arch._ 1861. Cependant, toutes les fois qu'on rencontre les Muses sur les sarcophages, il n'en faut pas conclure qu'elles désignent nécessairement la sépulture d'un poète. Sur un tombeau du Musée de Berlin (Gerhard, _Arch. Zeit._, jul. 1843., pl. 6.) on voit un bas-relief des Muses ; mais, comme l'indique l'inscription, ce tombeau n'est nullement celui d'un poète. Alors la représentation des Muses est simplement une de ces images sous lesquelles les Grecs aimaient à voiler l'idée de la mort. De même, sur les vases peints, le mariage d'Apollon et de Calliope, et l'union de Vénus et d'Adonis (_Elit. Céram._ pl. 80, pag. 257).
+[^149]: Tel est sans doute le sens d'un vers que nous trouvons à la fin d'une inscription (_C. I._ 6187) gravée sur le tombeau d'un poète musicien :  
+    καὶ μετὰ τὸν θάνατον Μοῦσαι μου σῶμα κρατοῦσιν.  
+    De même sur un sarcophage antique, aujourd'hui dans la cathédrale de Palerme, se voit un bas-relief des neuf Muses, où l'artiste a eu l'intention évidente d'indiquer que le défunt avait été favorisé des Muses pendant sa vie et instruit par elles. Sur ce bas-relief, voir un article de Wieseler dans les _Annal. Inst. Arch._ 1861.  
+    Cependant, toutes les fois qu'on rencontre les Muses sur les sarcophages, il n'en faut pas conclure qu'elles désignent nécessairement la sépulture d'un poète. Sur un tombeau du Musée de Berlin (Gerhard, _Arch. Zeit._, jul. 1843., pl. 6.) on voit un bas-relief des Muses ; mais, comme l'indique l'inscription, ce tombeau n'est nullement celui d'un poète. Alors la représentation des Muses est simplement une de ces images sous lesquelles les Grecs aimaient à voiler l'idée de la mort. De même, sur les vases peints, le mariage d'Apollon et de Calliope, et l'union de Vénus et d'Adonis (_Elit. Céram._ pl. 80, pag. 257).
 [^150]: Publiée par Gerhard, _Arch. Zeitung_, 1850, pl. 23-24.
 [^151]: Pausan. 9, 12, 3.
 [^152]: Théog. 15-16 ; cf. Pind. _Pyth._ 3, 159-160 ; Diodor. 5, 49.
@@ -537,7 +554,10 @@ Fin.
 [^204]: _Corp. Inscr._ 1585, 1586.
 [^205]: N° 26 de notre _Recueil d'Inscr. inéd. de Béotie._
 [^206]: Voir le texte à l'Appendice 2, inscription n° 5.
-[^207]: _Corp. Inscr._ 1585, l. 10 : ἐγκωμιογράφος εἰς τὸν Ἀυτοκράτορα l. 13 : ἐγκώμιον εἰς Μούσας. L'ἐγκώμιον est, d'après Bœckh, une composition lyrique qui se distingue par sa forme de la composition en vers épiques (ποίημα). Il est difficile en effet de considérer ces _encomiographes_ comme des prosateurs.
+[^207]: _Corp. Inscr._ 1585,  
+    l. 10 : ἐγκωμιογράφος εἰς τὸν Ἀυτοκράτορα  
+    l. 13 : ἐγκώμιον εἰς Μούσας.  
+    L'ἐγκώμιον est, d'après Bœckh, une composition lyrique qui se distingue par sa forme de la composition en vers épiques (ποίημα). Il est difficile en effet de considérer ces _encomiographes_ comme des prosateurs.
 [^208]: Pour la définition de ces genres littéraires et musicaux, voir le commentaire des n°s 1585-86 du _Corpus._ « Νεαρῳδός quid sit non liquet, » dit Bœckh.
 [^209]: _Corp. Inscr._ 1585, l. 21, 25 ; 1586, l. 13, 19, 24, 30, 35.
 [^210]: _Symp._ 9, Proœm. Τὸ ἔννατον τῶν Συμποσιακῶν ... περιέχει λόγους τοὺς Ἀθήνησιν ἐν τοῖς Μουσείοις γενομένους. _Ibid. Quæst._ 2 : ἔθους δ' ὄντος ἐν τοῖς Μουσείοις κλήρους περιφέρεσθαι καὶ τοὺς συλλαχόντας ἀλλήλοις προτείνειν φιλόλογα ζητήματα.
@@ -549,7 +569,16 @@ Fin.
 [^216]: Voir, entre autres, un vase décrit par Gerhard (_Auserlesene Vasenbilder_, pl. 68) : Héraklès _jouant de la cithare_ avec la peau de lion, le carquois, l'épée, mais sans massue, un pied sur la thymélè. En face de lui est Pallas ; à gauche Dionysos ; à droite Poséidon. Cette peinture représente évidemment Hercule à l'état de repos et de fête, après ses victoires.
 [^217]: Dans son discours _de Scholis instaurandis_, cap. 7. Cf. Pline, _Hist. Nat._ 35, 36, 4. Voici le texte d'Eumène : « Itemque Fulvius nobilior primus novem signa, hoc est omnium Camænarum, ex Ambracensi oppido translata sub tutela fortissimi numinis consecravit, ut res est, quia mutuis opibus et præmiis juvari ornarique deberent, Musarum quies defensione Herculis et virtus Herculis voce Musarum. »
 [^218]: Tom. 2, n° 2448.
-[^219]: Auson. _Idyll._ 20. _« Clio gesta canens transactis tempora reddit. »_ _« Melpomene tragico proclamat mœsta boatu. »_ _« Comica lascivo gaudet sermone Thalia. »_ _« Dulciloquos calamos Euterpe flatibus urget. »_ _« Terpsichore affectus cithara movet, imperat, auget. »_ _« Plectra gerens Erato saltat pede, carmine, vultu. »_ _« Carmina Calliope libris heroïca mandat. »_ _« Uranie cæli motus scrutatur et astra. »_ _« Signât cuncta manu, loquitur Polyhymnia gestu. »_
+[^219]: Auson. _Idyll._ 20.  
+    _« Clio gesta canens transactis tempora reddit. »_  
+    _« Melpomene tragico proclamat mœsta boatu. »_  
+    _« Comica lascivo gaudet sermone Thalia. »_  
+    _« Dulciloquos calamos Euterpe flatibus urget. »_  
+    _« Terpsichore affectus cithara movet, imperat, auget. »_  
+    _« Plectra gerens Erato saltat pede, carmine, vultu. »_  
+    _« Carmina Calliope libris heroïca mandat. »_  
+    _« Uranie cæli motus scrutatur et astra. »_  
+    _« Signât cuncta manu, loquitur Polyhymnia gestu. »_
 [^220]: Pour la description de ces statues, voir un article de M. Guédéonoff : Groupes de Muses antiques, dans les _Annal. de l'Inst. Arch._ 1852.
 [^221]: Plin. H. N. 36, 5.
 [^222]: _Mon. inéd. Inst. Arch._ t. 5, pl. 37.
@@ -561,7 +590,9 @@ Fin.
 [^228]: _Pyth._ 1, 1.
 [^229]: Κλειὼ καλλιχόρου κιθάρης μελιηδέα μόλπην Εὖρε ...
 [^230]: Plutarch, _Symp._ 14, 1.
-[^231]: Anthol. Jacobs, 2, 9, 505 : Δαφνοκόμοις Φοίβοιο παρὰ τριπόδεσσι κελεύω Κλειὼ, μαντοσύνης Μοῦσα καὶ ἱστορίης.
+[^231]: Anthol. Jacobs, 2, 9, 505 :  
+    Δαφνοκόμοις Φοίβοιο παρὰ τριπόδεσσι κελεύω  
+    Κλειὼ, μαντοσύνης Μοῦσα καὶ ἱστορίης.
 [^232]: _Pitt. antich. Ercol._ tom. 2, tab. 2.
 [^233]: Voir, à l'appendice n° 1, la façon dont Euterpe est représentée dans le groupe de la villa de Cassius.
 [^234]: _Symp._ 9, 14, 8. L'explication de Cornutus (_De N. D._, 14, p. 49) est encore moins satisfaisante : Εὐτέρπη δὲ ἀπὸ τοῦ τὰς ὁμιλίας αὐτῶν (τῶν πεπαιδευμένων) ἐπιτερπεῖς καὶ εὐαγώγους εἶναι.
@@ -571,16 +602,28 @@ Fin.
 [^238]: Pind. _Olymp._ 14, 4-5.
 [^239]: C'est l'interprétation stoïcienne de Cornutus, _De N. D._ 14, 50.
 [^240]: Plutarch. _Symp._ 9, 14, p. 746 f.
-[^241]: Schol. Apollon. 3, 1.  Θάλεια δὲ (λέγεται εὑρηκέναι) γεωργίαν καὶ τὴν περὶ τὰ φυτὰ πραγματείαν. Cf. Plut. Symp. 9, p. 745 a.
+[^241]: Schol. Apollon. 3, 1. Θάλεια δὲ (λέγεται εὑρηκέναι) γεωργίαν καὶ τὴν περὶ τὰ φυτὰ πραγματείαν. Cf. Plut. Symp. 9, p. 745 a.
 [^242]: Cornut. _De N. D._ 14, p. 50 : Μελπομένη δὲ ἀπὸ τῆς μολπῆς, γλυκείας τινὸς φωνῆς μετὰ μέλους οὔσης.
-[^243]: _Od._ 1, 24 : _... Præcipe lugubres_ _Cantus Melpomene, cui liquidam pater_ _Vocem cum cithara dedit_ _..._ _Od._ 4, 3 : _Quem tu, Melpomene, semel_ _Nascentem placido lumine videris ..._
+[^243]: _Od._ 1, 24 :  
+    _... Præcipe lugubres_  
+    _Cantus Melpomene, cui liquidam pater_  
+    _Vocem cum cithara dedit_  
+    _..._  
+    _Od._ 4, 3 :  
+    _Quem tu, Melpomene, semel_  
+    _Nascentem placido lumine videris ..._
 [^244]: Pausan. 1, 2, 4.
 [^245]: « Terpsichore affectus cithara movet, imperat, auget. »
 [^246]: Ἐρατὼ ψάλτρια (_Pitt. antich. Ercol._ t. 2, pl. 2-6). L'instrument que tient la Muse dans cette fresque n'est pas le _psaltérion_, mais bien la lyre de forme allongée. Une inscription de l'Anthologie (Jacobs, 9, 505) nous représente Érato jouant de la phorminx.
 [^247]: Voir la fresque citée ci-dessus.
 [^248]: Dans la collection de la reine Christine (Clarac. _Stat. ant. de l'Europe_, pl. 522).
 [^249]: Voir Panofka, _Terres cuites_, pl. 41, 2.
-[^250]: Apollonius attribue à Érato le rôle de Vénus : Εἰ δ' ἄγε νῦν, Ἐρατὼ, παρὰ δ' ἴστασο, καί μοι ἔνιστπε ἔνθεν ὅπως ἐς Ἰωλκὸν ἀνήγαγε κῶας Ἰήσων Μηδείης ὑπ' ἔρωτι. Σὺ γὰρ καὶ Κύπριδος αἶσαν ἔμμορες, ἀδμῆτας δὲ τεοῖς μελεδήμασι θέλγεις παρθενικὰάς · τῷ καί τοι ἐπήρατον οὔνομ' ἀνήπται.
+[^250]: Apollonius attribue à Érato le rôle de Vénus :  
+    Εἰ δ' ἄγε νῦν, Ἐρατὼ, παρὰ δ' ἴστασο, καί μοι ἔνιστπε  
+    ἔνθεν ὅπως ἐς Ἰωλκὸν ἀνήγαγε κῶας Ἰήσων  
+    Μηδείης ὑπ' ἔρωτι. Σὺ γὰρ καὶ Κύπριδος αἶσαν  
+    ἔμμορες, ἀδμῆτας δὲ τεοῖς μελεδήμασι θέλγεις  
+    παρθενικὰάς · τῷ καί τοι ἐπήρατον οὔνομ' ἀνήπται.
 [^251]: Æn. 7 ; 37 : _Nunc age qui reges, Erato, quæ tempora rerum._
 [^252]: Plut. _Symp._ p. 746 f.
 [^253]: Plat. _Phæd._ 91. --- Cornutus (_De N. D._ 14, p. 51, éd. Osann.), après avoir donné la même interprétation, par une fausse étymologie du nom de cette Muse (il le fait dériver de ἔρεσθαι) la considère comme présidant à l'art de la dialectique : τῆς περὶ τὸ ἔρεσθαι καὶ ἀποκρίνεσθαι δυνάμεως ἐπίσκοπός ἐστιν.
@@ -590,20 +633,30 @@ Fin.
 [^257]: _Symp._ 9, 14, p. 746 e.
 [^258]: Voir Clarac, pl. 328 ; _Mus. Pio._ Cf. 1, 28, _etc._ Une statue de Polymnie provenant de Thèbes est au _British Museum_ (9, pl. 4). La tête manque ; mais à la draperie et à l'attitude du corps, qui exprime la méditation, il est impossible de méconnaître Polymnie.
 [^259]: Cassiod. Variar. 1, 4, epist. 51, p. 76, éd. Garet, 1579.
-[^260]: Éd. Jacobs, 9, 505 : Σιγῶ φθεγγομένη παλάμης θελξίφρονα παλμὸν νεύματι φωνήεσσαν ἀπαγγέλλουσα σιωπήν.
+[^260]: Éd. Jacobs, 9, 505 :  
+    Σιγῶ φθεγγομένη παλάμης θελξίφρονα παλμὸν  
+    νεύματι φωνήεσσαν ἀπαγγέλλουσα σιωπήν.
 [^261]: Une inscription que nous avons trouvée dans les ruines de l'hiéron des Muses, et gravée sur la base d'une statue de Polymnie, représente cette Muse offrant une libation à Jupiter son père (Voir l'Appendice n° 2, inscription n° 1).
 [^262]: Plat. _Phæd._ p. 259 d : τῇ δὲ πρεσβυτάτ Καλλιόπῃ, καὶ τῇ μετ' αὐτὴν Οὐρανίᾳ. Dans la Théogonie, Uranie est citée à côté de Calliope qui a la prééminence. Cet ordre se trouve observé sur le _vase François_ (_Mon. Ined. Inst. arch._ 4, pl. 54-55).
-[^263]: C'est ce qu'il est permis d'inférer de l'épigramme suivante (Anth. Jacobs, 9, 505) : Οὐρανίη ψήφοιο θεοῤῥήτῳ τινὶ μέτρῳ ἀστρῴην ἐδίδαξα παλινδίνητον ἀνάγκην.
+[^263]: C'est ce qu'il est permis d'inférer de l'épigramme suivante (Anth. Jacobs, 9, 505) :  
+    Οὐρανίη ψήφοιο θεοῤῥήτῳ τινὶ μέτρῳ  
+    ἀστρῴην ἐδίδαξα παλινδίνητον ἀνάγκην.
 [^264]: Cornut. _De N. D._ 14, p. 51.
 [^265]: _Théog._ v. 79. Cf. Plat. _Phæd._ p. 259 d : τῇ δὲ πρεσβυτάτη Καλλιόπῃ ; Apollod. 1, 3, 1 : πρώτην μὲν Καλλιόπην.
-[^266]: _Hymn. Hom._ 21, éd. Baumeister : Ἣλιον ὑμνεῖν αὗτε Διός τέκος ἄρχεο Μοῦσα Καλλιόπη ... Alcman. (_Fragm._ 45 ; _Lyr. Gr._ Bergk, 5me édit) : Μῶσ' ἄγε, Καλλιόπα, θύγατερ Διός ...
+[^266]: _Hymn. Hom._ 21, éd. Baumeister :  
+    Ἣλιον ὑμνεῖν αὗτε Διός τέκος ἄρχεο Μοῦσα  
+    Καλλιόπη ...  
+    Alcman. (_Fragm._ 45 ; _Lyr. Gr._ Bergk, 5me édit) :  
+    Μῶσ' ἄγε, Καλλιόπα, θύγατερ Διός ...
 [^267]: Cette amphore est connue sous le nom de _vase François_. Elle a été publiée dans les _Monum. ined. Inst. Arch._ 4, pl. 54-55.
 [^268]: Philost. _Heroïc._ 19, 1, 7 cf. _Heroïc._ 20, 3 : θύειν μὲν αὐτὸν τῇ Καλλιόπῃ μουσικὴν αἰτοῦντα καὶ τοὺν ποιήσει κράτος.
 [^269]: Voir, entre autres, _Elit. Céram._ 2, pl. 80. Sur cette union d'Apollon et Calliope, d'où naissent Hymenæos, Ialemos et Orphée, voir : _Schol. Apollon. Rhod._ 1, 23 ; _Schol. Pind. Pyth._ 4, 313.
 [^270]: Hygin. _Astron._ 2, 7.
 [^271]: _Symp._ 9, 14, p. 746 e.
 [^272]: _De N. D._ 14, p. 51.
-[^273]: _Anth._ Jacobs 9, 505 : Εἰκόνα τῆς σοφίης ποτιδέρκεο · Καλλιόπης γὰρ εἰκόνα σῇ κραδίη λάμβανε τὴν σοφίην.
+[^273]: _Anth._ Jacobs 9, 505 :  
+    Εἰκόνα τῆς σοφίης ποτιδέρκεο · Καλλιόπης γὰρ  
+    εἰκόνα σῇ κραδίη λάμβανε τὴν σοφίην.
 [^274]: Plutarch. _Amat._ p. 751 e.
 [^275]: Chez les mythographes d'époque postérieure, la virginité des Muses n'est pas bien établie : Calliope s'unit avec Apollon, Euterpe avec le fleuve Strymon. Mais la tradition générale reconnaissait les Muses comme vierges. Voir Diodore, p. 148 p : τὰς Μούσας Διονύσῳ συναποδημεῖν, παρθένους οὔσας. --- Id. p. 150 c. : παρθένους τε αὐτὰς οἱ πλεῖστοι γεγονέναι μυθολογοῦσι.
 [^276]: Plutarch. _Symp._ 9, 14, p. 744 c.
